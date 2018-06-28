@@ -1,1000 +1,2000 @@
-[Sweet \"ANIME SUX\" Vinyl Stickers!!! (SERIES 1) Awww yeah...](https://www.kickstarter.com/projects/coolkids/sweet-anime-sux-vinyl-stickers-series-1-awww-yeah?ref=category_newest)
-[Body Joy Project](https://www.kickstarter.com/projects/35505847/body-joy-project?ref=category_newest)
-[NotreallysurePodcast](https://www.kickstarter.com/projects/930355636/notreallysurepodcast?ref=category_newest)
-[DeCommer 2015](https://www.kickstarter.com/projects/1524676215/decommer-2015?ref=category_newest)
-[The Peach that could not be contained.](https://www.kickstarter.com/projects/1287051719/the-peach-that-could-not-be-contained?ref=category_newest)
-[From Ink to Latex: A Sculpture based on Tattoo Art](https://www.kickstarter.com/projects/834501215/from-ink-to-latex-a-sculpture-based-on-tattoo-art?ref=category_newest)
-[Shelter in Bronze](https://www.kickstarter.com/projects/1656342219/shelter-in-bronze?ref=category_newest)
-[Spinnerette Volume 3: Printing Pandemonium!](https://www.kickstarter.com/projects/spinnerette/spinnerette-volume-3-printing-pandemonium?ref=category_newest)
-[NEW Cam-Arts \"Lego\" Minifigures from Games Movies & Animes](https://www.kickstarter.com/projects/1030402634/new-cam-arts-lego-minifigures-from-games-movies-an?ref=category_newest)
-[SPACE Anthology 2013](https://www.kickstarter.com/projects/379570420/space-anthology-2013?ref=category_newest)
-[LUST](https://www.kickstarter.com/projects/44flood/lust?ref=category_newest)
-[Viva la LibAIRTodd!](https://www.kickstarter.com/projects/elklandartcenter/viva-la-libairtodd?ref=category_newest)
-[THE LEG: A Graphic Novel With a Kick](https://www.kickstarter.com/projects/416999336/the-leg-a-graphic-novel-with-a-kick?ref=category_newest)
-[Kalemon the Monster Hunter](https://www.kickstarter.com/projects/1467100403/kalemon-the-monster-hunter?ref=category_newest)
-[Anime Doki Doki Pins](https://www.kickstarter.com/projects/1379460074/anime-doki-doki-pins?ref=category_newest)
-[Series 2 My Little Demon Plush](https://www.kickstarter.com/projects/1914905897/series-2-my-little-demon-plush?ref=category_newest)
-[Ours Esprit Start Up](https://www.kickstarter.com/projects/oursesprit/ours-esprit-start-up?ref=category_newest)
-[BigLou'S Grains And Brew Pub](https://www.kickstarter.com/projects/226847914/biglous-grains-and-brew-pub?ref=category_newest)
-[TAKE THESE BROKEN WINGS](https://www.kickstarter.com/projects/67166172/take-these-broken-wings?ref=category_newest)
-[Straight from the Holy Land Pens made w/ Bethlehem Olivewood](https://www.kickstarter.com/projects/1060627644/straight-from-the-holy-land-pens-made-w-bethlehem?ref=category_newest)
-[INTO MYSTERY: Clue 02 Figures](https://www.kickstarter.com/projects/1400869672/into-mystery-clue-02-figures?ref=category_newest)
-[Snap Watch](https://www.kickstarter.com/projects/792562084/snap-watch?ref=category_newest)
-[The Enormity of 2](https://www.kickstarter.com/projects/782591050/the-enormity-of-2-0?ref=category_newest)
-[Leather Imp](https://www.kickstarter.com/projects/430772497/leather-imp?ref=category_newest)
-[NHAA GRILLE BADGES](https://www.kickstarter.com/projects/1726565993/nhaa-grille-badges?ref=category_newest)
-[The I Am Cool Haha Project](https://www.kickstarter.com/projects/nitasha/the-i-am-cool-haha-project?ref=category_newest)
-[Geto Geeks Apparel - Educated Fashion](https://www.kickstarter.com/projects/1406206089/geto-geeks-apparel-educated-fashion?ref=category_newest)
-[David & Devine shoot a video!](https://www.kickstarter.com/projects/236894072/david-and-devine-shoot-a-video?ref=category_newest)
-[Beautifully Gifted](https://www.kickstarter.com/projects/1687419048/beautifully-gifted?ref=category_newest)
-[TWIC WEAR  #PPE4REALWOMEN](https://www.kickstarter.com/projects/ppe4realwomen/twic-wear-ppe4realwomen?ref=category_newest)
-[Walking Without Wires](https://www.kickstarter.com/projects/rachelshonkoff/walking-without-wires?ref=category_newest)
-[\"Four Color Eulogy\"](https://www.kickstarter.com/projects/fourcoloreulogy/four-color-eulogy?ref=category_newest)
-[Three Days at Foster](https://www.kickstarter.com/projects/610210604/three-days-at-foster?ref=category_newest)
-[Two new films by award-winning filmmaker Michael McCallum!](https://www.kickstarter.com/projects/990491726/two-new-films-by-award-winning-filmmaker-michael-m?ref=category_newest)
-[SOLA - What if the last surviving human didn't want to live?](https://www.kickstarter.com/projects/fallenangels/sola-a-film-about-the-end-of-days-depression-and-h?ref=category_newest)
-[The Gateway](https://www.kickstarter.com/projects/2110341760/the-gateway?ref=category_newest)
-[Road to Neptune Video Series](https://www.kickstarter.com/projects/1707625193/road-to-neptune-video-series?ref=category_newest)
-[WRONG:  A short film](https://www.kickstarter.com/projects/340821734/wrong-a-short-film-0?ref=category_newest)
-[Superman Fan Film](https://www.kickstarter.com/projects/jakethomas/superman-fan-film?ref=category_newest)
-[Grandma's Recipes:  Love on a Plate. Sharing the Love!](https://www.kickstarter.com/projects/sherriesther/grandmas-recipes-love-on-a-plate-sharing-the-love?ref=category_newest)
-[Pallet Powered Garden](https://www.kickstarter.com/projects/1376077614/pallet-powered-garden?ref=category_newest)
-[Low Carb and Gluten Free Cookie Mix **Carb O Chameleon**](https://www.kickstarter.com/projects/458637161/low-carb-and-gluten-free-cookie-mix-carb-o-chamele?ref=category_newest)
-[The Honey Dudes | Bees](https://www.kickstarter.com/projects/1986705943/the-honey-dudes-bees?ref=category_newest)
-[Organic chicken farm](https://www.kickstarter.com/projects/1330274221/organic-chicken-farm?ref=category_newest)
-[Colonialism](https://www.kickstarter.com/projects/1016374822/colonialism?ref=category_newest)
+[The Wonderlamp light art installation](https://www.kickstarter.com/projects/wonderlamp/the-wonderlamp-light-art-installation?ref=category_newest)
+
+[The end of \"RACE\"](https://www.kickstarter.com/projects/1110460680/the-end-of-race?ref=category_newest)
+
+[Fun Private Lessons for Special Needs](https://www.kickstarter.com/projects/2088555996/fun-private-lessons-for-special-needs?ref=category_newest)
+
+[My Ellen Degeneres Christmas Card (Play Video Below)](https://www.kickstarter.com/projects/2113750962/the-ellen-degeneres-christmas-card?ref=category_newest)
+
+[Public Art Installation promoting well-being in Health.](https://www.kickstarter.com/projects/senezio/public-art-installation-in-health-project?ref=category_newest)
+
+[Pre-Sale of \"Texas Flood\" 2016 DFW Yarn Crawl Knit Kit](https://www.kickstarter.com/projects/131329718/pre-sale-of-texas-flood-2016-dfw-yarn-crawl-knit-k?ref=category_newest)
+
+[Bullet Face: Cold Heart. A Mini-comic by Carlito Quinones](https://www.kickstarter.com/projects/bulletface/bullet-face-cold-heart-a-mini-comic-by-carlito-qui?ref=category_newest)
+
+[Super Salaryman Comic](https://www.kickstarter.com/projects/552351603/super-salaryman-comic?ref=category_newest)
+
+[Unbelievable Home Made Wooden Pens and Styluses](https://www.kickstarter.com/projects/925251202/unbelievable-home-made-wooden-pens-and-styluses?ref=category_newest)
+
+[Studio Charley's Hand Cut Papercuts](https://www.kickstarter.com/projects/studiocharley/studio-charleys-hand-cut-papercuts?ref=category_newest)
+
+[Charcuterie Boards - designed by nature, natural wood beauty](https://www.kickstarter.com/projects/1446005258/charcuterie-boards-designed-by-nature-natural-wood?ref=category_newest)
+
+[Environmentally Friendly Handmade Candles](https://www.kickstarter.com/projects/1704040157/environmentally-friendly-handmade-candles?ref=category_newest)
+
+[The Shawl Club Book - A Collection of Crochet Patterns](https://www.kickstarter.com/projects/658811577/the-shawl-club-book-a-collection-of-crochet-patter?ref=category_newest)
+
+[The Enchanted Forest: An Irish Fairy Ballet](https://www.kickstarter.com/projects/pasdedeux/the-enchanted-forest-an-irish-fairy-ballet?ref=category_newest)
+
+[Making Mustang Custom Guitars a Reality](https://www.kickstarter.com/projects/mustang-guitars/making-mustang-custom-guitars-a-reality?ref=category_newest)
+
+[Amazing Leather Wallets. Handcrafted. Built for life.](https://www.kickstarter.com/projects/549137152/amazing-leather-wallets-handcrafted-built-for-life?ref=category_newest)
+
+[The STEELHEAD GLOVE. The ultimate in protection and warmth.](https://www.kickstarter.com/projects/kastgear/the-steelhead-glove-the-ultimate-in-protection-and?ref=category_newest)
+
+[Help me launch SATORI Clothing!](https://www.kickstarter.com/projects/1902831237/help-me-launch-satori-clothing?ref=category_newest)
+
+[Deen Clothing](https://www.kickstarter.com/projects/deenclothing/deen-clothing-0?ref=category_newest)
+
+[Cold Hands - Short Film](https://www.kickstarter.com/projects/1885891433/cold-hands?ref=category_newest)
+
+[Crypto God - Urban Clothing for Crypto Fans](https://www.kickstarter.com/projects/1839587741/crypto-god-urban-clothing-for-crypto-fans?ref=category_newest)
+
+[Reevo Aerolight V2 - The Gi That Breathes](https://www.kickstarter.com/projects/1560150424/reevo-aerolight-v2-the-gi-that-breathes?ref=category_newest)
+
+[First Day at Ventriloquism Summer Camp ](https://www.kickstarter.com/projects/1174345714/first-day-at-ventriloquism-summer-camp?ref=category_newest)
+
+[Watermelon: A Cautionary Tale - animated short](https://www.kickstarter.com/projects/watermelon/watermelon-a-cautionary-tale-animated-short?ref=category_newest)
+
+[The Monster Hunter and the Pain in the Neck](https://www.kickstarter.com/projects/1085721991/monster-hunter-and-the-pain-in-the-neck?ref=category_newest)
+
+[\"Warlock's Magic: The Series\" LIVE FANTASY ANIME Worldwide!!](https://www.kickstarter.com/projects/1562388443/warlocks-magic-the-series-live-fantasy-anime-world?ref=category_newest)
+
+[The Untimely Demise of the Analog King](https://www.kickstarter.com/projects/1161966705/the-untimely-demise-of-the-analog-king?ref=category_newest)
+
+[Riding Bean High Octane Edition Anime Blu-ray](https://www.kickstarter.com/projects/madoverlord/riding-bean-high-octane-edition-anime-blu-ray?ref=category_newest)
+
+[OpferlinchenTV](https://www.kickstarter.com/projects/1944975809/opferlinchentv?ref=category_newest)
+
+[Little Ones Save Big Lake](https://www.kickstarter.com/projects/1098339806/little-ones-save-big-lake?ref=category_newest)
+
+[Placebo](https://www.kickstarter.com/projects/543435099/placebo-0?ref=category_newest)
+
+[ONE YEAR of Time-lapse](https://www.kickstarter.com/projects/tsla/one-year-of-time-lapse?ref=category_newest)
+
+[Support ( ), an explicitly embodied experimental film](https://www.kickstarter.com/projects/aortafilms/support-an-explicitly-embodied-experimental-film?ref=category_newest)
+
+[The Goddess Project](https://www.kickstarter.com/projects/thegoddessproject/the-goddess-project?ref=category_newest)
+
+[The Baby](https://www.kickstarter.com/projects/138595062/the-baby?ref=category_newest)
+
+[Canada China International Film Festival (CCIFF)](https://www.kickstarter.com/projects/1472475060/canada-china-international-film-festival-cciff?ref=category_newest)
+
+[This Sick Swift Club](https://www.kickstarter.com/projects/891952277/this-sick-swift-club?ref=category_newest)
+
+[Scottie's UCLA Thesis Production](https://www.kickstarter.com/projects/426349491/scotties-ucla-thesis-production?ref=category_newest)
+
+[AFTER LIFE](https://www.kickstarter.com/projects/willemk/after-life?ref=category_newest)
+
+[Overachievers: The Web Series](https://www.kickstarter.com/projects/wlproductions/overachievers-the-web-series?ref=category_newest)
+
+[Here We Wait - Web Series](https://www.kickstarter.com/projects/1691137967/here-we-wait-web-series?ref=category_newest)
+
+[Capitol Science - Episodes 1-4](https://www.kickstarter.com/projects/1053517144/capitol-science-episodes-1-3?ref=category_newest)
+
+[Tybee Island Pizza \"My Dream come True\"](https://www.kickstarter.com/projects/710443696/tybee-island-pizza-my-dream-come-true?ref=category_newest)
+
+[Project Z-6463 - a 3D short movie by Chris Eller](https://www.kickstarter.com/projects/ceeller/project-z-6463-a-3d-short-movie-by-chris-eller?ref=category_newest)
+
+[The Wine Grape Juice - Healty Juice Without Compromises](https://www.kickstarter.com/projects/793428750/the-wine-grape-juice-healty-juice-without-compromi?ref=category_newest)
+
+[Awesome Hot Sauce](https://www.kickstarter.com/projects/awesomehotsauce/awesome-hot-sauce?ref=category_newest)
+
+[Craft Distillery](https://www.kickstarter.com/projects/997436238/craft-distillery?ref=category_newest)
+
+[Oswald's Favorite](https://www.kickstarter.com/projects/oswalds/oswalds-favorite?ref=category_newest)
+
+[Traveling food cart with family](https://www.kickstarter.com/projects/886269516/traveling-food-cart-with-family?ref=category_newest)
+
+[Raw Food Desserts](https://www.kickstarter.com/projects/2118218409/raw-food-desserts?ref=category_newest)
+
+[Zombie Fried: The Hilarious Card Game](https://www.kickstarter.com/projects/396776259/zombie-fried-the-hilarious-card-game?ref=category_newest)
+
+[Escape Roosendaal](https://www.kickstarter.com/projects/escaperoosendaal/escape-roosendaal?ref=category_newest)
+
+[R-Cab Retro Arcade Cabinet](https://www.kickstarter.com/projects/116747893/r-cab-retro-arcade-cabinet?ref=category_newest)
+
+[Subscribe & Punch!](https://www.kickstarter.com/projects/1886196940/subscribe-and-punch?ref=category_newest)
+
+[Dream](https://www.kickstarter.com/projects/rysm/dream-1?ref=category_newest)
+
+[Disaster Defender:Save lives in a game and in the Real World](https://www.kickstarter.com/projects/peacefoundation/disaster-defender?ref=category_newest)
+
+[Pulp City: Supreme Edition](https://www.kickstarter.com/projects/472543693/pulp-city-supreme-edition?ref=category_newest)
+
+[Tables & Terrain](https://www.kickstarter.com/projects/j-p/war-and-peace-games-club-tables-and-terrain?ref=category_newest)
+
+[Queen's Crown](https://www.kickstarter.com/projects/490618601/queens-crown?ref=category_newest)
+
+[We're Throwing a Scandinavian Indie Games Party!](https://www.kickstarter.com/projects/killscreen/were-throwing-a-scandinavian-indie-games-party?ref=category_newest)
+
+[Keep two Journalists in the Middle East Safe](https://www.kickstarter.com/projects/1525495412/keep-two-kiwi-journalists-in-the-middle-east-safe?ref=category_newest)
+
+[Kantorei KC: To Bethlehem](https://www.kickstarter.com/projects/kantoreikc/kantorei-kc-to-bethlehem?ref=category_newest)
+
+[Land of the Long White Cloud](https://www.kickstarter.com/projects/1363447123/land-of-the-long-white-cloud?ref=category_newest)
+
+[Reverse Plasma, by the gamers, for the gamers.](https://www.kickstarter.com/projects/1657148227/reverse-plasma-by-the-gamers-for-the-gamers?ref=category_newest)
+
+[Make Sugar Honey Iced Tea Happen : Tour and Album](https://www.kickstarter.com/projects/971486893/make-sugar-honey-iced-tea-happen-tour-and-album?ref=category_newest)
+
+[\" A Letter to a Friend \" Album Pre-Order](https://www.kickstarter.com/projects/elonzo/a-letter-to-a-friend-album-pre-order?ref=category_newest)
+
+[AVASA Records](https://www.kickstarter.com/projects/781074765/avasa-records?ref=category_newest)
+
+[THE SHORTEST DAY old and new fiddle tunes and more!](https://www.kickstarter.com/projects/1228011257/the-shortest-day-old-and-new-fiddle-tunes-and-more?ref=category_newest)
+
+[Bending August wants to record a new CD!](https://www.kickstarter.com/projects/bendingaugust/bending-august-wants-to-record-a-new-cd?ref=category_newest)
+
+[The Flyest Nobody](https://www.kickstarter.com/projects/1575327772/the-flyest-nobody?ref=category_newest)
+
+[Christ Rebels Ministry](https://www.kickstarter.com/projects/98578332/christ-rebels-ministry?ref=category_newest)
+
+[Please Help Kick$tart So Il Chidrens Choir Trip to Carnegie.](https://www.kickstarter.com/projects/1736095194/so-il-chidrens-choir-sings-at-carnegie?ref=category_newest)
+
+[Wake Up and Dream: A Musical Tribute to Benji Wilhoite](https://www.kickstarter.com/projects/1153208519/wake-up-and-dream-a-musical-tribute-to-benji-wilho?ref=category_newest)
+
+[Creating Jazz For The Heart and Soul](https://www.kickstarter.com/projects/143020714/creating-jazz-for-the-heart-and-soul?ref=category_newest)
+
+[Clear Conscience + You = NEW ALBUM \"Native Jane\"](https://www.kickstarter.com/projects/ainaloha/clear-conscience-you-new-album-native-jane?ref=category_newest)
+
+[Bring Healing Music to Addicts, PTSD and veterans](https://www.kickstarter.com/projects/yogafortherestofus/bring-healing-music-to-addicts-ptsd-and-veterans?ref=category_newest)
+
+[Nostalgia](https://www.kickstarter.com/projects/1521645546/nostalgia-0?ref=category_newest)
+
+[asia mei's recording a new EP](https://www.kickstarter.com/projects/asiamei/asia-meis-recording-a-new-ep?ref=category_newest)
+
+[Electro-pop Band Nans & Nat Make Their Debut Album!](https://www.kickstarter.com/projects/952823766/electro-pop-band-nans-and-nat-make-their-debut-alb?ref=category_newest)
+
+[Things Boulders Ate](https://www.kickstarter.com/projects/201829682/things-boulders-ate?ref=category_newest)
+
+[1ND3X: Photography from the ETLE Universe](https://www.kickstarter.com/projects/1465274538/1nd3x-photography-from-the-etle-universe?ref=category_newest)
+
+[Life in Sweden / A photo book](https://www.kickstarter.com/projects/1865463420/life-in-sweden-a-photo-book?ref=category_newest)
+
+[American Confines vol 1: Cincinnati in 52](https://www.kickstarter.com/projects/856516463/american-confines-vol-1-cincinnati-in-52?ref=category_newest)
+
+[Ready to Retire? Tips & Secrets to Secure & Happy Retirement](https://www.kickstarter.com/projects/1910511042/ready-to-retire-secrets-and-tips-to-secure-and-hap?ref=category_newest)
+
+[Cut from Plain Cloth: The 2011 Wisconsin Workers Protests](https://www.kickstarter.com/projects/69550110/cut-from-plain-cloth-the-2011-wisconsin-workers-pr?ref=category_newest)
+
+[Unlocking the Right Brain: A Creative Thinking Workbook](https://www.kickstarter.com/projects/daniellefeliciano/unlocking-the-right-brain-a-creative-thinking-work?ref=category_newest)
+
+[Say Anything (the book)](https://www.kickstarter.com/projects/857840874/say-anything-the-book?ref=category_newest)
+
+[The Heights of Machu Picchu](https://www.kickstarter.com/projects/224465963/the-heights-of-machu-picchu?ref=category_newest)
+
+[Bring Back The Bushwick News!](https://www.kickstarter.com/projects/160540664/bring-back-the-bushwick-news?ref=category_newest)
+
+[LIGHTFREQ:\"The lovechild of Philips hue and Jambox\" BOOM](https://www.kickstarter.com/projects/lightfreq/lightfreq-the-first-genius-light-bulb-with-hd-audi?ref=category_newest)
+
+[CarryOn Jib - The Most Compact, yet Full-Sized Camera Crane](https://www.kickstarter.com/projects/proamusa/carryon-jib-the-most-compact-yet-full-sized-camera?ref=category_newest)
+
+[The School of Life Project](https://www.kickstarter.com/projects/330918750/the-school-of-life-project?ref=category_newest)
+
+[Gay Chic Magazine](https://www.kickstarter.com/projects/1260935602/gay-chic-magazine?ref=category_newest)
+
+[Minion, The Wireless Enabled Dev Board](https://www.kickstarter.com/projects/minioncity/minion-the-wireless-enabled-dev-board?ref=category_newest)
+
+[PiCE, The Ultimate Case For Your Raspberry Pi & Camera](https://www.kickstarter.com/projects/1821240043/pice-the-ultimate-case-for-your-raspberry-pi-and-c?ref=category_newest)
+
+[TabletHookz - Create your own seatback entertainment](https://www.kickstarter.com/projects/tablethookz/tablethookztm-create-your-own-seatback-entertainme?ref=category_newest)
+
+[Elysian Tuned Aperture Pickups for Electric Guitars & Basses](https://www.kickstarter.com/projects/165799071/elysian-tuned-aperture-pickups-for-electric-guitar?ref=category_newest)
+
+[Shine12! Bright LED Light Badges to support Seattle Seahawks](https://www.kickstarter.com/projects/574958276/shine-12-high-brightness-led-light-badges?ref=category_newest)
+
+[Real Estate Investing Software](https://www.kickstarter.com/projects/1323286586/real-estate-investing-software?ref=category_newest)
+
+[JETFOOT: The first handheld water pressure foot washer](https://www.kickstarter.com/projects/kevinpalmer/jetfoot-the-first-handheld-water-pressure-foot-was?ref=category_newest)
+
+[RaspiVoice V2.0](https://www.kickstarter.com/projects/raspivoice/raspivoice-v20?ref=category_newest)
+
+[Virtual Assist!!!](https://www.kickstarter.com/projects/157619355/virtual-assist?ref=category_newest)
+
+[nHydrate MySql Plug-in](https://www.kickstarter.com/projects/gravbox/nhydrate-mysql-plug-in?ref=category_newest)
+
+[BRILLAR: World's First Kids' Smart Wearable Companion.](https://www.kickstarter.com/projects/855945358/kids-wearable-fun-safe-engaging-and-connected-eco?ref=category_newest)
+
+[The Complete Wordpress Course - Build 6 Websites](https://www.kickstarter.com/projects/1275504024/the-complete-wordpress-course-build-6-websites?ref=category_newest)
+
+[Camp Curtain Call: Star Wars (A Parody)](https://www.kickstarter.com/projects/560367904/camp-curtain-call-star-wars-a-parody?ref=category_newest)
+
+[Vision 2 Victory Mind Body Soul Experience, the HRT tour](https://www.kickstarter.com/projects/1200312495/vision-2-victory-mind-body-soul-experience-the-hrt?ref=category_newest)
+
+[The website: WeControlCongress.us](https://www.kickstarter.com/projects/1129823159/the-website-wecontrolcongressus?ref=category_newest)
+
+[Warsaw Halloween Haunt](https://www.kickstarter.com/projects/116177283/warsaw-halloween-haunt?ref=category_newest)
+
+[Casita: Press Play](https://www.kickstarter.com/projects/ameliasaul/casita-press-play?ref=category_newest)
+
+[May the 4th Star Wars Millennium Falcon Die Cut Stickers](https://www.kickstarter.com/projects/joneallen/may-the-4th-star-wars-millennium-falcon-die-cut-st?ref=category_newest)
+
+[Paths II: The Music of Trees](https://www.kickstarter.com/projects/1326853506/paths-ii-the-music-of-trees?ref=category_newest)
+
+[Anagama Kiln in Denver](https://www.kickstarter.com/projects/1326033261/anagama-kiln-in-denver?ref=category_newest)
+
+[I've Been Dreaming of Birds](https://www.kickstarter.com/projects/2028729842/ive-been-dreaming-of-birds?ref=category_newest)
+
+[Arts & Coffee](https://www.kickstarter.com/projects/1163448608/arts-and-coffee?ref=category_newest)
+
+[Happy Harpy Hat Pin](https://www.kickstarter.com/projects/terminallazy/happy-harpy-hat-pin?ref=category_newest)
+
+[uncontrolled growth](https://www.kickstarter.com/projects/vastunderclass/uncontrolled-growth?ref=category_newest)
+
+[One Flew Over The Cuckoo's Nest...with a twist](https://www.kickstarter.com/projects/rmdeaftheatre/one-flew-over-the-cuckoos-nestwith-a-twist?ref=category_newest)
+
+[Ideas Shack](https://www.kickstarter.com/projects/1439871011/ideas-shack?ref=category_newest)
+
+[Year One](https://www.kickstarter.com/projects/433544158/year-one?ref=category_newest)
+
+[TALL TAILS: Tears of the Mother Issues #1 & #2](https://www.kickstarter.com/projects/17217803/tall-tails-tears-of-the-mother-issues-1-and-2?ref=category_newest)
+
+[First World trade paperback](https://www.kickstarter.com/projects/39140882/first-world-trade-paperback?ref=category_newest)
+
+[The Hedge Fund](https://www.kickstarter.com/projects/1481582055/the-hedge-fund?ref=category_newest)
+
+[Making beautiful quilts for the homeless.](https://www.kickstarter.com/projects/22052241/making-beautiful-quilts-for-the-homeless?ref=category_newest)
+
+[Classy-Cliché College Poster](https://www.kickstarter.com/projects/1769000011/classy-cliche-college-poster?ref=category_newest)
+
+[The Roost - Stop hunching over your laptop!](https://www.kickstarter.com/projects/86285180/the-roost-saving-your-neck-and-back-from-your-lapt?ref=category_newest)
+
+[Hoodi™ magnetic shades for the iPad® and iPad mini.](https://www.kickstarter.com/projects/hoodivision/hooditm-magnetic-shades-for-the-ipad-and-ipad-mini?ref=category_newest)
+
+[Leverage_ The Carbon Fiber Credit Card Sized Bottle Opener](https://www.kickstarter.com/projects/229989033/leverage-the-carbon-fiber-credit-card-sized-bottle?ref=category_newest)
+
+[DISTRICT 808 Hawaii:  Hawaiian Inspired T- Shirt Designs](https://www.kickstarter.com/projects/389805395/district-808-hawaiian-inspired-t-shirt-designs?ref=category_newest)
+
+[Rounded Edge Tie](https://www.kickstarter.com/projects/2090186861/rounded-edge-tie?ref=category_newest)
+
+[clop's the new pocket watch](https://www.kickstarter.com/projects/659939035/clops-the-new-pocket-watch?ref=category_newest)
+
+[Jewels's with Hart](https://www.kickstarter.com/projects/242375989/jewelss-with-hart?ref=category_newest)
+
+[Cutting Up](https://www.kickstarter.com/projects/1762157483/cutting-up?ref=category_newest)
+
+[\"A Light in the Dark\" World Premiere!](https://www.kickstarter.com/projects/80744163/a-light-in-the-dark-world-premiere?ref=category_newest)
+
+[The Starlite Project: Starlite (We Came to Sweat)](https://www.kickstarter.com/projects/1040885365/the-starlite-project-starlite-we-came-to-sweat?ref=category_newest)
+
+[Homeless in Finance](https://www.kickstarter.com/projects/2055237484/homeless-in-finance?ref=category_newest)
+
+[The Orange Man - COMEDY / SLASHER MOVIE (FEATURE FILM)](https://www.kickstarter.com/projects/stephenfolker/the-orange-man-comedy-slasher-movie?ref=category_newest)
+
+[Mathematical Solutions To René Descartes' Mind/Body Paradox](https://www.kickstarter.com/projects/murgatroyd/i-am-murgatroyd-and-because-of-you-i-will-someday?ref=category_newest)
+
+[Saints of The Classroom](https://www.kickstarter.com/projects/297595024/saints-of-the-classroom?ref=category_newest)
+
+[Prehenzel](https://www.kickstarter.com/projects/310272093/prehenzel?ref=category_newest)
+
+[Roger That, Garden Project](https://www.kickstarter.com/projects/1840201097/roger-that-garden-project?ref=category_newest)
+
+[Filipino Fusions: The Cookbook](https://www.kickstarter.com/projects/itak/filipino-fusions-the-cookbook?ref=category_newest)
+
+[Hannes' Bee Resort](https://www.kickstarter.com/projects/1905300019/hannes-bee-resort?ref=category_newest)
+
+[Cafe Liano](https://www.kickstarter.com/projects/1369331420/cafe-liano?ref=category_newest)
+
+[The Toscanino between the food and the social](https://www.kickstarter.com/projects/samuele/the-toscanino-between-the-food-and-the-social?ref=category_newest)
+
+[Let's Get A Keg!](https://www.kickstarter.com/projects/446882583/lets-get-a-keg?ref=category_newest)
+
+[Statera Cellars - Chardonnay, not chemicals](https://www.kickstarter.com/projects/1331030228/statera-cellars-chardonnay-not-chemicals?ref=category_newest)
+
+[Give a HOOT & help us finish the PARTY PLACE dream!!!](https://www.kickstarter.com/projects/partyplace/give-a-hoot-and-help-us-finish-the-party-place-dre?ref=category_newest)
+
+[Bird Attack](https://www.kickstarter.com/projects/1063522691/bird-attack?ref=category_newest)
+
+[Livestock Uprising - A Call to Farms](https://www.kickstarter.com/projects/dogmight/livestock-uprising-a-call-to-farms?ref=category_newest)
+
+[Palestine](https://www.kickstarter.com/projects/684190606/palestine?ref=category_newest)
+
+[1st Music CD - KaDi](https://www.kickstarter.com/projects/324898556/1st-music-cd-kadi?ref=category_newest)
+
+[The Falcon and the Fox](https://www.kickstarter.com/projects/237942522/the-falcon-and-the-fox?ref=category_newest)
+
+[Journey of The Lost and Found](https://www.kickstarter.com/projects/935149665/the-journey-of-the-lost-and-found?ref=category_newest)
+
+[Overcome Today](https://www.kickstarter.com/projects/721157880/overcome-today?ref=category_newest)
+
+[Thank you, I am truly grateful, you have enabled me to share my gift and inspire!](https://www.kickstarter.com/projects/725001060/thank-you-i-am-truly-grateful-you-have-enabled-me?ref=category_newest)
+
+[iBoc - Debut Concerts](https://www.kickstarter.com/projects/joaomacdowell/iboc-debut-concerts?ref=category_newest)
+
+[Drowning in Amnesty's Debut Album](https://www.kickstarter.com/projects/drowninginamnesty/drowning-in-amnestys-debut-album?ref=category_newest)
+
+[BE A PART OF THE BRIAN-ALWYN'S DEBUT PROJECT](https://www.kickstarter.com/projects/onthegrindmgmt/be-a-part-of-the-brian-alwyns-debut-project?ref=category_newest)
+
+[The White Oak Savanna Project: A book of photographs](https://www.kickstarter.com/projects/1551127860/the-white-oak-savanna-project-a-book-of-photograph?ref=category_newest)
+
+[Occupied Pleasures a Photo Book by Tanya Habjouqa](https://www.kickstarter.com/projects/2066133663/occupied-pleasures-a-photo-book-by-tanya-habjouqa?ref=category_newest)
+
+[Community/Cameras: Sri Lanka](https://www.kickstarter.com/projects/74394793/community-cameras-sri-lanka?ref=category_newest)
+
+[HLW PHOTOGRAPHY](https://www.kickstarter.com/projects/1753418994/hlw-photography?ref=category_newest)
+
+[Photography project for the conservation of nature](https://www.kickstarter.com/projects/734419987/photography-project-for-the-conservation-of-nature?ref=category_newest)
+
+[Cats on Amps Photo Book!!!!](https://www.kickstarter.com/projects/magneticeye/cats-on-amps-photo-book?ref=category_newest)
+
+[Help Me Publish My First Book!](https://www.kickstarter.com/projects/1508580320/help-me-publish-my-first-book?ref=category_newest)
+
+[Changing School Culture with the 21 Day Kindness Challenge](https://www.kickstarter.com/projects/2027111194/changing-school-culture-with-the-21-day-kindness-c?ref=category_newest)
+
+[SURRENDER!](https://www.kickstarter.com/projects/941940706/surrender?ref=category_newest)
+
+[Eva Lily & the Three Toed Snooch - A story book for children](https://www.kickstarter.com/projects/1596490044/eva-lily-and-the-three-toed-snooch-a-story-book-fo?ref=category_newest)
+
+[Little Ty Cooney and the Big Yellowstone Mystery](https://www.kickstarter.com/projects/1588953991/little-ty-cooney-and-the-big-yellowstone-mystery?ref=category_newest)
+
+[Coast: A Novel (and the reinvention of the novel)](https://www.kickstarter.com/projects/1600266683/coast-a-novel-and-the-reinvention-of-the-novel?ref=category_newest)
+
+[Heirloom](https://www.kickstarter.com/projects/katemuus/heirloom-0?ref=category_newest)
+
+[Walking Patagonia: A True Love Story -nonfiction book!](https://www.kickstarter.com/projects/1125637279/walking-patagonia-a-true-love-story?ref=category_newest)
+
+[Free Snow White.  A memoir of survival.](https://www.kickstarter.com/projects/171213530/free-snow-white-a-memoir-of-survival?ref=category_newest)
+
+[Translating Christopher Okigbo - Don’t Let Him Die](https://www.kickstarter.com/projects/467010112/translating-christopher-okigbo-dont-let-him-die?ref=category_newest)
+
+[Chicago IRL #4](https://www.kickstarter.com/projects/mugwumpian/chicago-irl-4-0?ref=category_newest)
+
+[CurrantNOW: The App You Wish You Had After Hurricane Sandy!](https://www.kickstarter.com/projects/8632308/currantnow-find-what-you-need-share-what-you-know?ref=category_newest)
+
+[freeSoC and freeSoC Mini](https://www.kickstarter.com/projects/18182218/freesoc-and-freesoc-mini?ref=category_newest)
+
+[Global Electric Car Conversion Training Reusing ICE Cars](https://www.kickstarter.com/projects/1752677733/global-electric-car-conversion-training-reusing-ic?ref=category_newest)
+
+[Pinmi: Social Networking Application. Pin, share, & discover](https://www.kickstarter.com/projects/1770927422/pinmi-social-networking-application-pin-share-and?ref=category_newest)
+
+[Prynt: the first instant camera case for iPhone and Android](https://www.kickstarter.com/projects/prynt/prynt-the-first-instant-camera-case-for-iphone-and?ref=category_newest)
+
+[URUK WiFi Router Module (Arduino Compatible)](https://www.kickstarter.com/projects/1761474145/uruk-wifi-router-module-arduino-compatible?ref=category_newest)
+
+[Sweeney Todd at Harrington's Pie and Mash Shop in Tooting!](https://www.kickstarter.com/projects/1369684151/sweeney-todd-at-harringtons-pie-and-mash-shop-in-t?ref=category_newest)
+
+[Showgirls the Musical: PDX](https://www.kickstarter.com/projects/showgirlsmusical/showgirls-the-musical-pdx?ref=category_newest)
+
+[PULSE* - Play any musical instrument with smart 3D control](https://www.kickstarter.com/projects/52595655/pulse-discover-the-future-of-music-playing?ref=category_newest)
+
+[O'Neill's BLIND ALLEY GUY is going to the Incubator!](https://www.kickstarter.com/projects/1616864426/oneills-blind-alley-guy-is-going-to-the-incubator?ref=category_newest)
+
+[Fox News The Musical](https://www.kickstarter.com/projects/1721410604/fox-news-the-musical?ref=category_newest)
+
+[1000 Portraits](https://www.kickstarter.com/projects/bughousetheater/1000-portraits?ref=category_newest)
+
+[Save the City Reliquary!  Collecting and Protecting New York City Artifacts](https://www.kickstarter.com/projects/Reliquary/save-the-city-reliquary-collecting-and-protectin-0?ref=category_newest)
+
+[Dead All Over 'Día de los Muertos' T-Shirt and Artwork](https://www.kickstarter.com/projects/nickgribbon/dead-all-over-dia-de-los-muertos-t-shirt-and-artwo?ref=category_newest)
+
+[Life in Plano, TX](https://www.kickstarter.com/projects/1769465139/life-in-plano-tx?ref=category_newest)
+
+[Matthew Langley: A Painting A Day Book](https://www.kickstarter.com/projects/1976973405/matthew-langley-a-painting-a-day-book?ref=category_newest)
+
+[Marfa in Milan](https://www.kickstarter.com/projects/2131540799/marfa-in-milan?ref=category_newest)
+
+[The 50/50 LIGHT project](https://www.kickstarter.com/projects/1662147845/the-50-50-light-project?ref=category_newest)
+
+[Painting to Prints \"The Barn\" Painting from a tortured mind!](https://www.kickstarter.com/projects/410968344/painting-to-prints-the-barn-painting-from-a-tortur?ref=category_newest)
+
+[Crestview's Christmas Carol](https://www.kickstarter.com/projects/1789186465/crestviews-christmas-carol?ref=category_newest)
+
+[Outdoor Public Education Centre and Urban Garden](https://www.kickstarter.com/projects/294531965/outdoor-public-education-centre-and-urban-garden?ref=category_newest)
+
+[Planed Obsolecence](https://www.kickstarter.com/projects/Christogoth/planed-obsolecence?ref=category_newest)
+
+[Martha's Vineyard Public Art Project](https://www.kickstarter.com/projects/505732664/marthas-vineyard-public-art-project?ref=category_newest)
+
+[The Devil In I: A Horror Comic by Johnny Segura 3rd.](https://www.kickstarter.com/projects/auronasia/the-devil-in-i-a-horror-comic-by-johnny-segura-3rd?ref=category_newest)
+
+[Funny Business](https://www.kickstarter.com/projects/1422119205/funny-business-0?ref=category_newest)
+
+[Oi! Tales of Bardic Fury: Volume One-comic](https://www.kickstarter.com/projects/danieldesosa/oi-tales-of-bardic-fury-volume-one-comic?ref=category_newest)
+
+[Pearson's Wood Market](https://www.kickstarter.com/projects/2087054313/pearsons-wood-market?ref=category_newest)
+
+[The Hero Code: Volume 1](https://www.kickstarter.com/projects/556628777/the-hero-code-volume-1?ref=category_newest)
+
+[Create Shoppe:  Pre-order your DIY Gift Kit or craft party](https://www.kickstarter.com/projects/1333002793/create-shoppe?ref=category_newest)
+
+[Help Wild Rumpus Jazz Dance Company become a reality!](https://www.kickstarter.com/projects/1621962569/help-wild-rumpus-jazz-dance-company-become-a-reali?ref=category_newest)
+
+[The Kick - a pocket sized lighting studio for photo & video](https://www.kickstarter.com/projects/1918868829/the-kick-a-pocket-sized-lighting-studio-for-photo?ref=category_newest)
+
+[CATALYST 2011 | \"Back by Popular Demand\"](https://www.kickstarter.com/projects/lamovementarts/catalyst-2011-back-by-popular-demand?ref=category_newest)
+
+[CaptCase - Sleek & Slim Premium Leather Case for the iPhone](https://www.kickstarter.com/projects/chrisdavismusic/captcase-sleek-and-slim-premium-leather-case-for-t?ref=category_newest)
+
+[The Marine Corps and US Navy Aviation Poster](https://www.kickstarter.com/projects/cigeography/aircraft-posters-by-cigeography?ref=category_newest)
+
+[#EyesonthePrize with #AlleyandEye](https://www.kickstarter.com/projects/523349211/eyesontheprize-with-alleyandeye?ref=category_newest)
+
+[DO BETTER BOX — Shirts That Do Good, So You Can Do Better.](https://www.kickstarter.com/projects/dannyrothschild/do-better-box?ref=category_newest)
+
+[Insect Repellent Travel Wear. No More Bug Bites!](https://www.kickstarter.com/projects/nobugs/insect-repellent-travel-wear-no-more-bug-bites?ref=category_newest)
+
+[Bumbu Lifestyle - Eco Bamboo Underwear Built For Adventure](https://www.kickstarter.com/projects/75063828/bumbu-underwear-eco-ethical-bamboo-underwear?ref=category_newest)
+
+[Louis Project](https://www.kickstarter.com/projects/667002585/louis-project?ref=category_newest)
+
+[JOLLY GOLF | Tutor to improve your short game definitely](https://www.kickstarter.com/projects/jollygolf/jolly-golf-tutor-to-improve-your-short-game-defini?ref=category_newest)
+
+[The Little Spinster (Feature Film)](https://www.kickstarter.com/projects/43513303/the-little-spinster-feature-film?ref=category_newest)
+
+[KNIGHTMARE PART II](https://www.kickstarter.com/projects/240706094/knightmare-part-ii?ref=category_newest)
+
+[Eva Lance To The Moon](https://www.kickstarter.com/projects/1876114089/eva-lance-to-the-moon?ref=category_newest)
+
+[Operation Porno Film](https://www.kickstarter.com/projects/904936686/operation-porno-film?ref=category_newest)
+
+[Getting Over - All in 1 Project](https://www.kickstarter.com/projects/anthonybradley/getting-over-all-in-1-project?ref=category_newest)
+
+[RED Camera for G.O.D.TECH](https://www.kickstarter.com/projects/davidjohnjeffery/red-camera-for-godtech?ref=category_newest)
+
+[Sausage, Eggs, Beans and Chips](https://www.kickstarter.com/projects/1885301278/sausage-eggs-beans-and-chips?ref=category_newest)
+
+[Samira - a narrative short film](https://www.kickstarter.com/projects/665420963/samira-a-narrative-short-film?ref=category_newest)
+
+[Completion Funds for Love in the year 2000](https://www.kickstarter.com/projects/charismaticleader/completion-funds-for-love-in-the-year-2000?ref=category_newest)
+
+[Home Schooling Exercise: Teach children TaeKwonDo today!](https://www.kickstarter.com/projects/cpc/home-schooling-exercise-teach-children-taekwondo-t?ref=category_newest)
+
+[REVOLUTION OF BLACK STAR \"Kwame Nkrumah Biography\"](https://www.kickstarter.com/projects/903575920/revolution-of-black-star-kwame-nkrumah-biography?ref=category_newest)
+
+[The Doctors: a film by Michael Cavadias and Rob Roth](https://www.kickstarter.com/projects/davidgraver/the-doctors-a-film-by-michael-cavadias-and-rob-rot?ref=category_newest)
+
+[Breakaway](https://www.kickstarter.com/projects/123377637/breakaway?ref=category_newest)
+
+[\"The Last Signals\"- feature film about the Titanic](https://www.kickstarter.com/projects/1659482750/the-last-signals-feature-film-about-the-titanic?ref=category_newest)
+
+[Shapes Bar & Restaruant](https://www.kickstarter.com/projects/895940952/shapes-bar-and-restaruant?ref=category_newest)
+
+[SAVORx- A Different Kind Of Spice Company (Really Different)](https://www.kickstarter.com/projects/spiceologist/savorx-a-different-kind-of-spice-company-really-di?ref=category_newest)
+
+[6th Ring Streaming Video Project](https://www.kickstarter.com/projects/1552301255/6th-ring-streaming-video-project?ref=category_newest)
+
+[Lida Farm Deep Winter Greenhouse and Root Cellar Project](https://www.kickstarter.com/projects/1512981845/lida-farm-deep-winter-greenhouse-and-root-cellar-p?ref=category_newest)
+
+[Hogzilla S.O.W. (Squeals On Wheels) A Veteran Owned Company](https://www.kickstarter.com/projects/shaneb/hogzilla-sow-squeals-on-wheels-a-veteran-owned-com?ref=category_newest)
+
+[Twistd Grip Burger Bar](https://www.kickstarter.com/projects/474857831/twistd-grip-burger-bar?ref=category_newest)
+
+[Buddy & Me](https://www.kickstarter.com/projects/1644707178/buddy-and-me?ref=category_newest)
+
+[CreaVures](https://www.kickstarter.com/projects/musegames/creavures?ref=category_newest)
+
 [Red Box Games' Fantasy Miniatures!!!](https://www.kickstarter.com/projects/1103158358/red-box-games-helsvakt-horde?ref=category_newest)
-[Spud's Quest](https://www.kickstarter.com/projects/chrisd/spuds-quest?ref=category_newest)
-[My Sky Creator, an interactive visual game for everyone!](https://www.kickstarter.com/projects/myskycreator/my-sky-creator-an-interactive-visual-game-for-ever?ref=category_newest)
-[Campaign Notebook - for Players and GMs](https://www.kickstarter.com/projects/justinsirois/campaign-notebook-for-players-and-gms?ref=category_newest)
-[City Under House](https://www.kickstarter.com/projects/203710561/city-under-house?ref=category_newest)
-[BLOCKCHAIN: The Cryptocurrency Game](https://www.kickstarter.com/projects/1615994366/blockchain-the-cryptocurrency-game?ref=category_newest)
-[Pluto new horizons self improvement campaign](https://www.kickstarter.com/projects/815084687/pluto-new-horizons-self-improvement-campaign?ref=category_newest)
-[Amanda Pearcy's Second CD](https://www.kickstarter.com/projects/417821654/amanda-pearcys-second-cd?ref=category_newest)
-[Nick J. Thyson - Bassline Junk (New album)](https://www.kickstarter.com/projects/382484645/nick-j-thyson-bassline-junk-new-album?ref=category_newest)
-[\"Free Questions for Answer\" album Stardom Kit](https://www.kickstarter.com/projects/36315668/free-questions-for-answer-album-stardom-kit?ref=category_newest)
-[New CD/iTunes release by NYC drummer GREG BURROWS+Great Band](https://www.kickstarter.com/projects/gregjazzdrums/new-cd-itunes-release-by-nyc-drummer-greg-burrows?ref=category_newest)
-[Kickstart our Heart! Della Mae Records Debut Album](https://www.kickstarter.com/projects/dellamae/kickstart-our-heart-della-mae-records-debut-album?ref=category_newest)
-[Unnatural Disaster: A New Record from Patrick Dunn](https://www.kickstarter.com/projects/1696973356/unnatural-disaster-a-new-record-from-patrick-dunn?ref=category_newest)
-[The Brothers Kaschak...Debut Album](https://www.kickstarter.com/projects/1268330700/the-brothers-kaschakdebut-album?ref=category_newest)
-[Tenor Guitars Swing! Let's make a CD.](https://www.kickstarter.com/projects/1279476162/tenor-guitars-swing-lets-make-a-cd?ref=category_newest)
-[Help The Rita Collective record it's first world jazz CD](https://www.kickstarter.com/projects/418341482/help-the-rita-collective-record-its-first-world-ja?ref=category_newest)
-[A Russian Night in Seattle with Marina V](https://www.kickstarter.com/projects/1224990874/a-russian-night-in-seattle-with-marina-v-0?ref=category_newest)
-[Rivers Monroe Fall Tour 2016](https://www.kickstarter.com/projects/55044664/rivers-monroe-fall-tour-2016?ref=category_newest)
-[Record the new album and shooting a professional video](https://www.kickstarter.com/projects/2126063058/record-the-new-album-and-shooting-a-professional-v?ref=category_newest)
-[Sam Tsui's Debut Album](https://www.kickstarter.com/projects/936012954/sam-tsuis-debut-album?ref=category_newest)
-[Signals. - New EP, Single, Video & UK Tour](https://www.kickstarter.com/projects/1074661092/signals-new-ep-single-video-and-uk-tour?ref=category_newest)
-[Sex Trafficking Photo Project: China to Iceland](https://www.kickstarter.com/projects/joannabranson/sex-trafficking-photo-project-china-to-iceland?ref=category_newest)
-[The Cambodian Diaspora](https://www.kickstarter.com/projects/181740424/the-cambodian-diaspora?ref=category_newest)
-[Aerial footage of landmarks in the UK](https://www.kickstarter.com/projects/1714868075/arial-views-of-landmarks-in-the-uk?ref=category_newest)
-[Book to Help Middle School Teachers!](https://www.kickstarter.com/projects/28468870/book-to-help-middle-school-teachers?ref=category_newest)
-[The Gobi Desert, Best Served Cold](https://www.kickstarter.com/projects/photogravy/the-gobi-desert-best-served-cold?ref=category_newest)
-[Sounds of Liberation: Music, Crisis and Resistance](https://www.kickstarter.com/projects/313396477/sounds-of-liberation-music-crisis-and-resistance?ref=category_newest)
-[a really, really BIG Novel!](https://www.kickstarter.com/projects/1563146211/a-really-really-big-novel?ref=category_newest)
-[Savor ArtZone461 Gallery's unique mission, ART as Experience](https://www.kickstarter.com/projects/748971975/savor-artzone461-gallerys-unique-mission-art-as-ex?ref=category_newest)
-[It's Different Every Day Calendar](https://www.kickstarter.com/projects/boaz/its-different-every-day-calendar?ref=category_newest)
-[NW Cosplay Book 2](https://www.kickstarter.com/projects/1571043497/nw-cosplay-book-2?ref=category_newest)
-[Patently Absurd](https://www.kickstarter.com/projects/101187357/patently-absurd?ref=category_newest)
-[BANDERSNATCH Goes Audio!!](https://www.kickstarter.com/projects/1295650505/bandersnatch-goes-audio?ref=category_newest)
-[Lasers! Lumber! Prints!](https://www.kickstarter.com/projects/joevw/lasers-lumber-prints?ref=category_newest)
-[Cogar's Revolt Book Launch](https://www.kickstarter.com/projects/654251687/cogars-revolt-book-launch?ref=category_newest)
-[The Floating Globe Lamp](https://www.kickstarter.com/projects/williammehess/the-floating-globe-lamp?ref=category_newest)
-[JANTAM. A PRECISION ENGINEERED TECHNOLOGICAL INVENTION](https://www.kickstarter.com/projects/clomondal/jantam-a-precision-engineered-technological-invent?ref=category_newest)
-[Wi-Fi Tables Assistance Device](https://www.kickstarter.com/projects/56250585/wi-fi-tables-assistance-device?ref=category_newest)
-[Keep In Touch / K.I.T](https://www.kickstarter.com/projects/1437309834/keep-in-touch-kit?ref=category_newest)
-[SoLo Rescue Signal](https://www.kickstarter.com/projects/1741210471/solo-rescue-signal?ref=category_newest)
-[TRIBUTE: The Most Meaningful Gift On Earth](https://www.kickstarter.com/projects/1761204261/tribute-the-most-meaningful-gift-on-earth?ref=category_newest)
-[GoPro spandex pouch Hat(snapback) \"See-you-later Head Mount\"](https://www.kickstarter.com/projects/194400653/gopro-hat-snapback?ref=category_newest)
-[It's not VPN, it's AlwaysHome! Take your content worldwide](https://www.kickstarter.com/projects/206013920/its-not-vpn-its-alwayshome?ref=category_newest)
-[BonePonics! Open source hydroponics automation.](https://www.kickstarter.com/projects/1713787503/boneponics-open-source-hydroponics-automation?ref=category_newest)
-[Develop a common language with dolphins](https://www.kickstarter.com/projects/1440712734/develop-a-common-language-with-dolphins?ref=category_newest)
-[StatGraphica - Find, compare, and share data on the web.](https://www.kickstarter.com/projects/651670480/statgraphica-find-compare-and-share-data-on-the-we?ref=category_newest)
-[Celebrate My Birthday with \"It's Only Life\"](https://www.kickstarter.com/projects/pksfrk/celebrate-my-birthday-with-its-only-life?ref=category_newest)
-[Honor and Family - A New Musical](https://www.kickstarter.com/projects/186778715/honor-and-family-a-new-musical?ref=category_newest)
-[Bring Oedipus Revenant to Life!](https://www.kickstarter.com/projects/18661148/bring-oedipus-revenant-to-life?ref=category_newest)
-[THE MARYLAND WOMEN- An Immersive Theatre Project](https://www.kickstarter.com/projects/526248021/the-maryland-women-an-immersive-theatre-project?ref=category_newest)
-[Ray In the Raw](https://www.kickstarter.com/projects/1777646650/ray-in-the-raw?ref=category_newest)
-[I Will Draw Your Portrait](https://www.kickstarter.com/projects/1653207232/i-will-draw-your-portrait?ref=category_newest)
-[Framing My Shearwater Show](https://www.kickstarter.com/projects/621261057/framing-my-shearwater-show?ref=category_newest)
-[Shutterfree Photo-Art Setup](https://www.kickstarter.com/projects/991086078/shutterfree-photo-art-setup?ref=category_newest)
-[Monsters of Comedy Tour & Film](https://www.kickstarter.com/projects/115792085/monsters-of-comedy-tour-and-film?ref=category_newest)
-[A Mark for Peace - Exhibition](https://www.kickstarter.com/projects/901911771/a-mark-for-peace-exhibition?ref=category_newest)
-[Enamel Pins by Skulldog](https://www.kickstarter.com/projects/skulldog/enamel-pins-by-skulldog?ref=category_newest)
-[Galerie Simpson \"Selection Box\"](https://www.kickstarter.com/projects/263749059/galerie-simpson-selection-box?ref=category_newest)
-[Photographing at the Bates Dance Festival:  Documenting the life of dance and dancers](https://www.kickstarter.com/projects/1574582856/photographing-at-the-bates-dance-festival-document?ref=category_newest)
-[Say NO to Nazis sticker](https://www.kickstarter.com/projects/288400640/say-no-to-nazis-sticker?ref=category_newest)
-[For The Love of Community- AAIFF‘15 FREE Flushing Events](https://www.kickstarter.com/projects/aaiff15flushing/for-the-love-of-community-aaiff15-free-flushing-ev?ref=category_newest)
-[Toro, the 1st Real Puerto Rican Super Powered Hero](https://www.kickstarter.com/projects/471161414/toro-the-1st-real-puerto-rican-super-powered-hero?ref=category_newest)
-[OneSqin: natural tampons & skincare, educating girls in need](https://www.kickstarter.com/projects/1679248568/onesqin-natural-tampons-and-skincare-educating-gir?ref=category_newest)
-[MagicallYESsential](https://www.kickstarter.com/projects/magicallyessential/magicallyessential?ref=category_newest)
-[Love Story, Palestine](https://www.kickstarter.com/projects/1403167449/love-story-palestine?ref=category_newest)
-[CALI & CO dance & The WELCOME MATT present MOVE THRU ME!!!](https://www.kickstarter.com/projects/1213692945/cali-and-co-dance-and-the-welcome-matt-present-mov?ref=category_newest)
-[Minimal Movie, TV & Video Game Characters & Heroes](https://www.kickstarter.com/projects/matthewstott/minimal-movie-tv-and-video-game-characters-and-her?ref=category_newest)
-[Sport Bumper: Protecting Your Ride and Your Gear](https://www.kickstarter.com/projects/1413065778/sport-bumper-protecting-your-ride-and-your-gear?ref=category_newest)
-[Sparxgear: Fire Piston](https://www.kickstarter.com/projects/267124385/sparxgear-fire-piston?ref=category_newest)
-[Accelerator Shirt for the Masses](https://www.kickstarter.com/projects/jacksonville/accelerator-shirt-for-the-masses?ref=category_newest)
-[Guard Wolves Merchandising](https://www.kickstarter.com/projects/2078043641/guard-wolves-merchandising?ref=category_newest)
-[3-in-1 Little Frogs : Versatile Furniture for Kids](https://www.kickstarter.com/projects/klinkokids/3-in-1-little-frogs-versatile-furniture-for-kids?ref=category_newest)
-[LEOPARDËT: Bringing Back 'Made in USA' Clothing](https://www.kickstarter.com/projects/770269732/the-leap-by-leopardet-fashioning-the-american-drea?ref=category_newest)
-[Remix your kicks. A new way to replace your lace.](https://www.kickstarter.com/projects/184145666/remix-your-kicks-a-new-way-to-replace-your-lace?ref=category_newest)
-[Sasquatch & Son](https://www.kickstarter.com/projects/1894047642/sasquatch-and-son?ref=category_newest)
-[The Hornets Nest the Fairmont Heights Story](https://www.kickstarter.com/projects/30459061/the-hornets-nest-the-fairmont-heights-story?ref=category_newest)
-[Margie (The Farmer) - Short Film](https://www.kickstarter.com/projects/councilchild/margie-the-farmer-short-film?ref=category_newest)
-[Hearts At War](https://www.kickstarter.com/projects/purplesky/hearts-at-war?ref=category_newest)
-[The Cure](https://www.kickstarter.com/projects/45890673/the-cure?ref=category_newest)
-[Hawaii to Florida Orchestra Competition Video](https://www.kickstarter.com/projects/mmsorchestra/hawaii-to-florida-orchestra-competition-video?ref=category_newest)
-[Man of The House](https://www.kickstarter.com/projects/RoryDonovanScott/man-of-the-house?ref=category_newest)
-[DONNIE: A Short Film](https://www.kickstarter.com/projects/473043338/donnie-a-short-film?ref=category_newest)
-[The Pit: A FIlm by Byron Camacho](https://www.kickstarter.com/projects/440528244/the-pit-a-film-by-byron-camacho?ref=category_newest)
-[Following Oaks - a short thriller/murder mystery film](https://www.kickstarter.com/projects/5oclockwednesday/following-oaks-a-short-thriller-murder-mystery-fil?ref=category_newest)
-[Turn our cities' windows into vertical veggie farms! ](https://www.kickstarter.com/projects/windowfarms/turn-our-cities-windows-into-vertical-veggie-farm?ref=category_newest)
-[small.batch kombucha](https://www.kickstarter.com/projects/1639794729/smallbatch-kombucha?ref=category_newest)
-[Jar Of Love Potato Salad](https://www.kickstarter.com/projects/1628160972/jar-of-love-potato-salad?ref=category_newest)
-[Superb Smoothies: made by you, with no hassle or waste](https://www.kickstarter.com/projects/1714895808/superb-smoothies-made-by-you-with-no-hassle-or-was?ref=category_newest)
-[Ghostfish Brewing Company - 100% Gluten-Free Beer](https://www.kickstarter.com/projects/898556630/ghostfish-brewing-company-100-gluten-free-beer?ref=category_newest)
-[Lucrative Thoughtz Catering & Personal Meals](https://www.kickstarter.com/projects/643111151/lucrative-thoughtz-catering-and-personal-meals?ref=category_newest)
-[The Red House by Nancy Jackson \"Pay it Forward\" Restaurant!](https://www.kickstarter.com/projects/250503/the-red-house?ref=category_newest)
-[Wimmers' Whistlestop Weiner Shoppe](https://www.kickstarter.com/projects/359683739/wimmers-whistlestop-weiner-shoppe?ref=category_newest)
-[TWO LATINAS WITH SOUL](https://www.kickstarter.com/projects/217693518/two-latinas-with-soul?ref=category_newest)
-[Garrick Foods Teji Sauce](https://www.kickstarter.com/projects/palmerorgonite/garrick-foods-teji-sauce?ref=category_newest)
-[Hail Seitan](https://www.kickstarter.com/projects/hailseitan/hail-seitan?ref=category_newest)
-[LARP Genesis](https://www.kickstarter.com/projects/1660742969/larp-genesis?ref=category_newest)
-[King of the North 2015](https://www.kickstarter.com/projects/uomesports/king-of-the-north-2015?ref=category_newest)
-[Start Player Express](https://www.kickstarter.com/projects/tedalspach/start-player-express?ref=category_newest)
-[Son of Nor - The World is Your Weapon](https://www.kickstarter.com/projects/stillalivestudios/son-of-nor-the-world-is-your-weapon?ref=category_newest)
-[Detail Journal of individual's THC treatment for Narcolepsy](https://www.kickstarter.com/projects/2061953429/detail-journal-of-individuals-thc-treatment-for-na?ref=category_newest)
-[Compounded: Better Gaming Through Chemistry](https://www.kickstarter.com/projects/dicehateme/compounded-better-gaming-through-chemistry?ref=category_newest)
-[Haunts: The Manse Macabre](https://www.kickstarter.com/projects/2066438441/haunts-the-manse-macabre?ref=category_newest)
+
+[Pens Plus Pals: A Modern Matching Service for Pen Pals](https://www.kickstarter.com/projects/884876207/pens-plus-pals-a-modern-matching-service-for-pen-p?ref=category_newest)
+
+[The Planets: Mercury [1 of 8]](https://www.kickstarter.com/projects/goldklangdesign/the-planets-mercury-1-of-8?ref=category_newest)
+
+[How OverAchiever Moms Succeed In The 21st Century](https://www.kickstarter.com/projects/overachievermom/how-overachiever-moms-succeed-in-our-stressful-mod?ref=category_newest)
+
+[Can't Give This War Away:  Photojournalism from Iraq](https://www.kickstarter.com/projects/344190969/cant-give-this-war-away-photojournalism-from-iraq?ref=category_newest)
+
+[The Weeks need a new van.](https://www.kickstarter.com/projects/1217197400/the-weeks-need-a-new-van?ref=category_newest)
+
+[Mark Mueller's Debut Album \"Riches & Rubble\"](https://www.kickstarter.com/projects/911790728/mark-muellers-debut-album-riches-and-rubble?ref=category_newest)
+
+[Rushing Past Willow: Nick Zoulek's Debut Album and Project](https://www.kickstarter.com/projects/1602077/rushing-past-willow-nick-zouleks-debut-album-and-p?ref=category_newest)
+
+[Father of Lights Album](https://www.kickstarter.com/projects/67785378/father-of-lights-album?ref=category_newest)
+
+[AtteroTerra's Sophomore Album - Pray for Apocalypse](https://www.kickstarter.com/projects/1692143113/atteroterras-sophomore-album-pray-for-apocalypse?ref=category_newest)
+
+[Vinyl LP pressing for Southside Desire's debut album](https://www.kickstarter.com/projects/southsidedesire/vinyl-lp-pressing-for-southside-desires-debut-albu?ref=category_newest)
+
+[Fake Tapes Debut EP Fund](https://www.kickstarter.com/projects/1351955862/fake-tapes-debut-ep-fund?ref=category_newest)
+
+[All British Guys - Coffee Table Book](https://www.kickstarter.com/projects/manscout/all-british-guys-coffee-table-book?ref=category_newest)
+
+[Home is Here](https://www.kickstarter.com/projects/1067590824/home-is-here?ref=category_newest)
+
+[Origami blizzard style for the masses](https://www.kickstarter.com/projects/323814893/origami-blizzard-style-for-the-masses?ref=category_newest)
+
+[The Legend of Mermaids Tears - Vol 1 Pearl & The Pirate](https://www.kickstarter.com/projects/pearlandthepirate/the-legend-of-mermaids-tears-vol-1-pearl-and-the-p?ref=category_newest)
+
+[Writing a children's book for my stepdaughter](https://www.kickstarter.com/projects/1390876946/writing-a-childrens-book-for-my-stepdaughter?ref=category_newest)
+
+[Our Writing Dream by Lindsay Ellington and Jenna Bath](https://www.kickstarter.com/projects/835629857/our-writing-dream-by-lindsay-ellington-and-jenna-b?ref=category_newest)
+
+[Open Source 3D Printed Turbine Based Electronics Cleaner](https://www.kickstarter.com/projects/leivasmash/open-source-3d-printed-turbine-based-electronics-c?ref=category_newest)
+
+[Book on Increasing Your Salary](https://www.kickstarter.com/projects/99037189/book-on-increasing-your-salary?ref=category_newest)
+
+[TEAM 696: FIRST Robotics - Clark Magnet High School](https://www.kickstarter.com/projects/796949972/team-696-first-robotics-clark-magnet-high-school?ref=category_newest)
+
+[Macchina: The Ultimate Tool for Taking Control of Your Car!](https://www.kickstarter.com/projects/1029808658/macchina-the-ultimate-tool-for-taking-control-of-y?ref=category_newest)
+
+[New PlierTek® iPad iPhone Corner Frame Repair Tool Kit.](https://www.kickstarter.com/projects/1976574436/new-pliertek-ipad-iphone-corner-frame-repair-tool?ref=category_newest)
+
+[Let's build a Hackerspace in KOSOVO](https://www.kickstarter.com/projects/1731685895/lets-build-a-hackerspace-in-kosovo?ref=category_newest)
+
+[gamesBoard - a game console interface for PC](https://www.kickstarter.com/projects/358218980/gamesboard-a-game-console-interface-for-pc?ref=category_newest)
+
+[The World's Toughest Headphones](https://www.kickstarter.com/projects/outdoortech/the-worlds-toughest-headphones?ref=category_newest)
+
+[Electric Jungle](https://www.kickstarter.com/projects/found/electric-jungle?ref=category_newest)
+
+[Ducky Diapers](https://www.kickstarter.com/projects/recruiterpoet/ducky-diapers?ref=category_newest)
+
+[KOR-FX Gaming Vest: 4DFX Haptic Feedback System](https://www.kickstarter.com/projects/kor-fx/kor-fx-gaming-vest-4dfx-haptic-feedback-system?ref=category_newest)
+
+[entersquare: Social Media With a Conscience](https://www.kickstarter.com/projects/zachford/entersquare-social-media-with-a-concience?ref=category_newest)
+
+[Oxblood](https://www.kickstarter.com/projects/212794485/oxblood?ref=category_newest)
+
+[Art for Flight: An Educational Fund for Aviation Safety](https://www.kickstarter.com/projects/618473580/art-for-flight-an-educational-fund-for-aviation-sa?ref=category_newest)
+
+[Illuminance - A Festival of Light! September 10, 2016](https://www.kickstarter.com/projects/1047917416/illuminance-a-festival-of-light-september-10-2016?ref=category_newest)
+
+[Trump Oranges - shirts, pins, stickers and art](https://www.kickstarter.com/projects/897772321/donald-trump-oranges?ref=category_newest)
+
+[It's about our use... we gotta REDUCE!](https://www.kickstarter.com/projects/2117424812/its-about-our-use-we-gotta-reduce?ref=category_newest)
+
+[Fred och Kärlekståget - Peace and Love Parade](https://www.kickstarter.com/projects/fredochkarlek/fred-och-karlekstaget-peace-and-love-parade?ref=category_newest)
+
+[Skateboardvideo](https://www.kickstarter.com/projects/1314380762/skateboardvideo?ref=category_newest)
+
+[Inspiration Art Tour](https://www.kickstarter.com/projects/530685983/inspiration-art-tour?ref=category_newest)
+
+[Add Some Color to Your Holiday](https://www.kickstarter.com/projects/esethree/add-some-color-to-your-holiday?ref=category_newest)
+
+[The House Life Project](https://www.kickstarter.com/projects/houselife/the-house-life-project?ref=category_newest)
+
+[Aggro8Legends - Graphic Novel Series](https://www.kickstarter.com/projects/1580750327/aggro8legends?ref=category_newest)
+
+[Melts of Milton - hand made melts, candles and accessories](https://www.kickstarter.com/projects/373537763/melts-of-milton-hand-made-melts-candles-and-access?ref=category_newest)
+
+[Reclaimed Wood iPhone Docks](https://www.kickstarter.com/projects/1984579888/reclaimed-wood-iphone-docks?ref=category_newest)
+
+[SOLOSOCKS 2.0 - A Unique Solution To Missing Socks](https://www.kickstarter.com/projects/solosocks/solosocks-20-a-unique-solution-to-missing-socks?ref=category_newest)
+
+[Customize - Phone Cases,Jumpers,T-Shirt, Baby Grows & Puzzle](https://www.kickstarter.com/projects/505439360/customize-phone-casesjumperst-shirt-baby-grows-and?ref=category_newest)
+
+[Soles For Change - Handmade shoes made by Colombian artisans](https://www.kickstarter.com/projects/1452886956/soles-for-change-handmade-shoes-made-by-colombian?ref=category_newest)
+
+[Life Unfolded Clothing](https://www.kickstarter.com/projects/lifeunfolded/life-unfolded-clothing?ref=category_newest)
+
+[Attempt to Jump Grand Canyon (Suspended)](https://www.kickstarter.com/projects/462085864/attempt-to-jump-grand-canyon?ref=category_newest)
+
+[Sera Ulger LDN](https://www.kickstarter.com/projects/345359098/sera-ulger-ldn?ref=category_newest)
+
+[To The Moon](https://www.kickstarter.com/projects/emmathatcher/to-the-moon?ref=category_newest)
+
+[The 41st Day -- Ryan Hall's Journey](https://www.kickstarter.com/projects/1694465205/the-41st-day?ref=category_newest)
+
+[Wandering Star: An independent animation by Aubrey Jewel.](https://www.kickstarter.com/projects/1899152229/keeper-of-the-stars?ref=category_newest)
+
+[Skating Through It](https://www.kickstarter.com/projects/nisma/skating-through-it?ref=category_newest)
+
+[A debt paid masterfully](https://www.kickstarter.com/projects/1818572236/a-debt-paid-masterfully?ref=category_newest)
+
+[Standards & Practices: A Short Film About Modern Romance](https://www.kickstarter.com/projects/966977498/standards-and-practices-a-short-film-about-modern?ref=category_newest)
+
+[Endangered Wildlife: The Other Side of the Fence](https://www.kickstarter.com/projects/1016417245/endangered-wildlife-the-other-side-of-the-fence?ref=category_newest)
+
+[\"Evil Woman\" Music Video](https://www.kickstarter.com/projects/212569528/evil-woman-music-video?ref=category_newest)
+
+[Sensoria](https://www.kickstarter.com/projects/1306312332/sensoria?ref=category_newest)
+
+[Ocala Filmhouse](https://www.kickstarter.com/projects/1242232315/ocala-filmhouse?ref=category_newest)
+
+[Sink the worlds biggest 3d printed Titanic!](https://www.kickstarter.com/projects/1521707595/sink-the-worlds-biggest-3d-printed-titanic?ref=category_newest)
+
+[Escandalo Video Shoot for \"Nocturning\"](https://www.kickstarter.com/projects/958120623/escandalo-video-shoot-for-nocturning?ref=category_newest)
+
+[OTHER WORLDS](https://www.kickstarter.com/projects/1792536021/other-worlds-0?ref=category_newest)
+
+[Ghost lake](https://www.kickstarter.com/projects/1258160477/ghost-lake?ref=category_newest)
+
+[Mom's Cooking Crisis - A Competitive Cooking Competition](https://www.kickstarter.com/projects/momscookingcrisis/moms-cooking-crisis-a-competitive-cooking-competit?ref=category_newest)
+
+[FALL & WINTER Documentary- NEW TRAILER! LAST DAY!!](https://www.kickstarter.com/projects/manderson/fall-and-winter-a-documentary-film?ref=category_newest)
+
+[SWERVE](https://www.kickstarter.com/projects/491771164/swerve?ref=category_newest)
+
+[Fly Away Farm USA Sustainable CSA Produce, Eggs and Honey](https://www.kickstarter.com/projects/1789007942/fly-away-farm-usa-sustainable-csa-produce-eggs-and?ref=category_newest)
+
+[Create the Magazine \"Pyrogy-Varenyky\"](https://www.kickstarter.com/projects/406040642/create-the-magazine-pyrogy-varenyky?ref=category_newest)
+
+[Whole Roasted Lechon Food Truck](https://www.kickstarter.com/projects/89223233/whole-roasted-lechon-food-truck?ref=category_newest)
+
+[Heat Sweets Gift Boxes featured at Celebrity Emmy Party!](https://www.kickstarter.com/projects/2036916595/heat-sweets-gifts-boxes-featured-at-celebrity-emmy?ref=category_newest)
+
+[FLAVOR FIRST, HEAT SECOND!](https://www.kickstarter.com/projects/islandriot/get-sauced-riot-style?ref=category_newest)
+
+[Safer Plastic Food Containers](https://www.kickstarter.com/projects/1693480064/safer-plastic-food-containers?ref=category_newest)
+
+[Final Defense](https://www.kickstarter.com/projects/2093121326/final-defense?ref=category_newest)
+
+[The Manhattan Project - Mega Expansion](https://www.kickstarter.com/projects/miniongames/the-manhattan-project-mega-expansion?ref=category_newest)
+
+[Prime Wars](https://www.kickstarter.com/projects/1794375019/prime-wars?ref=category_newest)
+
+[The Spark Cards](https://www.kickstarter.com/projects/thesparkcards/the-spark-cards?ref=category_newest)
+
+[The Cantabile Vocal Ensemble to record debut album!](https://www.kickstarter.com/projects/21784890/the-cantabile-vocal-ensemble-to-record-debut-album?ref=category_newest)
+
+[Send Dinosaur Annex to the Beijing Modern Music Festival](https://www.kickstarter.com/projects/dinosaurannex/send-dinosaur-annex-to-the-beijing-modern-music-fe?ref=category_newest)
+
+[Open Piano Competition, Turin, Italy, 2013](https://www.kickstarter.com/projects/190288337/open-piano-competition-turin-italy-2013?ref=category_newest)
+
+[Virtual Table Top](https://www.kickstarter.com/projects/389138591/virtual-table-top?ref=category_newest)
+
+[Starr Mazer](https://www.kickstarter.com/projects/imagosfilms/starr-mazer?ref=category_newest)
+
+[Old Death Whisper is ready to record a new album.](https://www.kickstarter.com/projects/olddeathwhisper/old-death-whisper-is-ready-to-record-a-new-album?ref=category_newest)
+
+[Handel-Halvorsen Passacaglia: A Music Video](https://www.kickstarter.com/projects/798668615/handel-halvorsen-passacaglia-a-music-video?ref=category_newest)
+
+[Both Sides of the Same Coin](https://www.kickstarter.com/projects/1414091871/both-sides-of-the-same-coin?ref=category_newest)
+
+[FREC.Me EDM Party](https://www.kickstarter.com/projects/2053052009/frecme-edm-party?ref=category_newest)
+
+[Synchronicity EDM Festival](https://www.kickstarter.com/projects/892172166/synchronicity-edm-festival?ref=category_newest)
+
+[Revolution USA - Hitchhiking Tour](https://www.kickstarter.com/projects/1041684441/revolution-usa-hitchhiking-tour?ref=category_newest)
+
+[PD3Music Present: PD3- Love Circles](https://www.kickstarter.com/projects/1693355187/pd3music-present-pd3-love-circles?ref=category_newest)
+
+[JACUZZI CHRIS SOUTHWESTERN RAP ADVENTURE: PONY TALES](https://www.kickstarter.com/projects/1064990689/jacuzzi-chris-southwestern-rap-adventure-pony-tale?ref=category_newest)
+
+[Let's Change a Life!](https://www.kickstarter.com/projects/logicthetopic/lets-change-a-life?ref=category_newest)
+
+[Choose Judd and Maggie's new album: \"Choose\"](https://www.kickstarter.com/projects/166611407/choose-judd-and-maggies-new-album-choose?ref=category_newest)
+
+[Phil & Angela Benoit \"Beyond The Sea\" West Coast Tour 2014](https://www.kickstarter.com/projects/2113188865/phil-and-angela-benoit-beyond-the-sea-west-coast-t?ref=category_newest)
+
+[Birds with arms](https://www.kickstarter.com/projects/492569409/birds-with-arms?ref=category_newest)
+
+[Amess Music](https://www.kickstarter.com/projects/amessmusic/amess-music?ref=category_newest)
+
+[Phenomena: A photobook about UFO and alien encounters](https://www.kickstarter.com/projects/phenomena/phenomena-a-photobook-about-ufo-and-alien-encounte?ref=category_newest)
+
+[Legacy - Prehistoric Britain Photography Project](https://www.kickstarter.com/projects/jasonfriend/legacy-prehistoric-britain-photography-project?ref=category_newest)
+
+[All The Colors Of Magic - A Trio Of Coloring Books](https://www.kickstarter.com/projects/1401678214/all-the-colors-of-magic-a-trio-of-coloring-books?ref=category_newest)
+
+[The Tatter of Life by Lisa Barron- another dimension to life](https://www.kickstarter.com/projects/986853320/the-tatter-of-life-by-lisa-barron-another-dimensio?ref=category_newest)
+
+['Painting The Stage With People;' Garland Wright and the American Theater](https://www.kickstarter.com/projects/1497960233/painting-the-stage-with-people-garland-wright-and?ref=category_newest)
+
+[3Dmate Design Mat for 3D Printing Pen](https://www.kickstarter.com/projects/736265995/3dmate-design-mat-for-3d-printing-pen?ref=category_newest)
+
+[You Matter App - Health Exam Reminder](https://www.kickstarter.com/projects/53465572/you-matter-app-health-exam-reminder?ref=category_newest)
+
+[movie mode](https://www.kickstarter.com/projects/1127976089/movie-mode?ref=category_newest)
+
+[Party with a Local: connecting Travelers & Locals to Party](https://www.kickstarter.com/projects/1615529850/party-with-a-local-connecting-travelers-and-locals?ref=category_newest)
+
+[Bragg Snap](https://www.kickstarter.com/projects/220624568/bragg-snap?ref=category_newest)
+
+[Shimoda Adventure Camera Bags](https://www.kickstarter.com/projects/1032536695/shimoda-adventure-camera-bags?ref=category_newest)
+
+[MIX DUO: Keep On Listening™!](https://www.kickstarter.com/projects/pumpaudio/mix-duo-keep-on-listeningtm?ref=category_newest)
+
+[VERVE 2: Connect your world to your computer and internet](https://www.kickstarter.com/projects/54060271/verve2-connect-your-world-to-your-computer-and-int?ref=category_newest)
+
+[The Fitness Search Engine](https://www.kickstarter.com/projects/972883324/the-fitness-search-engine?ref=category_newest)
+
+[The TAP by ARMORZ intelligent screen protector for iPhone 6S](https://www.kickstarter.com/projects/1657859054/the-tap-by-armorz-intelligent-screen-protector-for?ref=category_newest)
+
+[GMF - Acoustic Pickups for Guitars and stringed instruments](https://www.kickstarter.com/projects/1742603391/gmf-acoustic-pickups-for-guitars-and-stringed-inst?ref=category_newest)
+
+[Mogees - Transform anything into a musical instrument.](https://www.kickstarter.com/projects/mogeesplay/mogees?ref=category_newest)
+
+[Dancers](https://www.kickstarter.com/projects/435916784/dancers?ref=category_newest)
+
+[Illustration DJCAD Degree Show 2015](https://www.kickstarter.com/projects/1809101448/illustration-djcad-degree-show-2015?ref=category_newest)
+
+[Ghost PokéZine](https://www.kickstarter.com/projects/rsnbrgjrdn/ghost-pokezine-0?ref=category_newest)
+
+[A bite of Me](https://www.kickstarter.com/projects/1461902402/a-bit-e-of-me?ref=category_newest)
+
+[Artists of the World, Unite! studio space for art and ideas!](https://www.kickstarter.com/projects/1236313564/artists-of-the-world-unite-studio-space-for-art-an?ref=category_newest)
+
+[Vision Works Workshop by KVM Magazine](https://www.kickstarter.com/projects/1995932106/vision-workshop-by-kvm-magazine?ref=category_newest)
+
+[Artist Residency at the Vermont Studio Center](https://www.kickstarter.com/projects/404409038/artist-residency-at-the-vermont-studio-center-4?ref=category_newest)
+
+[Emerging NZ Artist exhibiting in NEW YORK!](https://www.kickstarter.com/projects/828734517/emerging-nz-artist-exhibiting-in-new-york?ref=category_newest)
+
+[Why Not Art](https://www.kickstarter.com/projects/1367587781/why-not-art?ref=category_newest)
+
+[The Gaia Gallery](https://www.kickstarter.com/projects/damarchetti/the-gaia-gallery?ref=category_newest)
+
+[Chapel for the Betrayed](https://www.kickstarter.com/projects/1075378162/chapel-for-the-betrayed?ref=category_newest)
+
+[Natalia The Catholic / Book Two: Kings](https://www.kickstarter.com/projects/1164622832/natalia-the-catholic-book-two-kings?ref=category_newest)
+
+[SEX AND VIOLENCE VOL. 2](https://www.kickstarter.com/projects/1397702842/sex-and-violence-vol-2?ref=category_newest)
+
+[NL skateboards & Apparel](https://www.kickstarter.com/projects/775320563/nl-skateboards-and-apparel?ref=category_newest)
+
+[El Jefe - the Boss of keychains.](https://www.kickstarter.com/projects/138311159/el-jefe-the-boss-of-keychains?ref=category_newest)
+
+[The Myths of Design Book](https://www.kickstarter.com/projects/megabolt/the-myths-of-design-book?ref=category_newest)
+
+[herbsack Chic Totes in Organic Hemp & Cotton Resist Bacteria](https://www.kickstarter.com/projects/1032317632/herbsack-organic-hemp-tote-is-attractive-strong-an?ref=category_newest)
+
+[3-in-1 Editor Boot: The Only Boot You Will Ever Need](https://www.kickstarter.com/projects/636926064/3-in-1-editor-boot-the-only-boot-you-will-ever-nee?ref=category_newest)
+
+[OneJahLove: A Global PEACE and LOVE Celebration!](https://www.kickstarter.com/projects/onejahlove/onejahlove-a-global-peace-and-love-celebration?ref=category_newest)
+
+[Transformers Unofficial G1 Cartoon Continuation](https://www.kickstarter.com/projects/fanaticfilms/transformers-unofficial-g1-cartooncontinuation?ref=category_newest)
+
+[Conversations](https://www.kickstarter.com/projects/1173053352/conversations-1?ref=category_newest)
+
+[Sack & Fatts - Not Fit For Human Consumption](https://www.kickstarter.com/projects/1551164555/sack-and-fatts-not-fit-for-human-consumption?ref=category_newest)
+
+[To Them That's Gone: A Film for the Fallen](https://www.kickstarter.com/projects/1670101310/to-them-thats-gone-a-film-for-the-fallen?ref=category_newest)
+
+[Trailer for a Film Project about Women of Domestic Abuse.](https://www.kickstarter.com/projects/1633710902/trailer-for-a-film-project-about-women-of-domestic?ref=category_newest)
+
+[simmo7ts youtube World Music Video Site](https://www.kickstarter.com/projects/1635047503/simmo7ts-youtube-music-video-site?ref=category_newest)
+
+[Dead of Winter](https://www.kickstarter.com/projects/1993613760/dead-of-winter?ref=category_newest)
+
+[\"SILENCE\" Feature Film Project](https://www.kickstarter.com/projects/toddebraley/silence-feature-film-project?ref=category_newest)
+
+[A Night In](https://www.kickstarter.com/projects/1016560690/a-night-in?ref=category_newest)
+
+[Gospel Praise & Talk](https://www.kickstarter.com/projects/933421883/gospel-praise-and-talk?ref=category_newest)
+
+[\"Stand-In\" Television Pilot](https://www.kickstarter.com/projects/1632785101/stand-in-television-pilot?ref=category_newest)
+
+[Farming Food Justice: Cheerful Chicken Farm](https://www.kickstarter.com/projects/1515303965/farming-food-justice-cheerful-chicken-farm?ref=category_newest)
+
+[Power Up!!!](https://www.kickstarter.com/projects/1056628546/power-up-0?ref=category_newest)
+
+[No Coast Creamery](https://www.kickstarter.com/projects/896236340/no-coast-creamery?ref=category_newest)
+
+[La Cafetera](https://www.kickstarter.com/projects/685459632/cafe-con-azucar?ref=category_newest)
+
+[The American dream is hard to come by](https://www.kickstarter.com/projects/566780516/the-american-dream-is-hard-to-come-by?ref=category_newest)
+
+[El Salvadorian Restaurant in NYC](https://www.kickstarter.com/projects/858433468/el-salvadorian-restaurant-in-nyc?ref=category_newest)
+
+[Ping](https://www.kickstarter.com/projects/450410010/ping?ref=category_newest)
+
+[Futuristic Metal Coins or Victory Tokens](https://www.kickstarter.com/projects/miniongames/futuristic-metal-coins-or-victory-tokens?ref=category_newest)
+
+[Swords of Edo Visual Novel Game](https://www.kickstarter.com/projects/ajtilley/swords-of-edo-visual-novel-game?ref=category_newest)
+
+[Greek Pottery Playing Cards](https://www.kickstarter.com/projects/521277495/greek-pottery-playing-cards?ref=category_newest)
+
+[Rhapsody • Kansas State University Choral Division](https://www.kickstarter.com/projects/921013346/rhapsody-kansas-state-university-choral-division?ref=category_newest)
+
+[The Gears LP, from scratch... With You.](https://www.kickstarter.com/projects/kingwashington/the-gears-lp-from-scratch-with-you?ref=category_newest)
+
+[And The Echo Smoke and Mirrors Music Video!](https://www.kickstarter.com/projects/1531826843/and-the-echo-smoke-and-mirrors-music-video?ref=category_newest)
+
+[Teachyoubeats.com](https://www.kickstarter.com/projects/teachyoubeats/teachyoubeatscom?ref=category_newest)
+
+[¡ Animals in Cars - New Album !](https://www.kickstarter.com/projects/kevd1337/animals-in-cars-new-album-0?ref=category_newest)
+
+[Makayla Duvall's EP Fund!](https://www.kickstarter.com/projects/makayladuvall/makayla-duvalls-ep-fund?ref=category_newest)
+
+[Anthony Lamarr - Intermission: The Learning Never Stops](https://www.kickstarter.com/projects/1053874283/anthony-lamarr-intermission-the-learning-never-sto?ref=category_newest)
+
+[Cara Frew's Debut Album](https://www.kickstarter.com/projects/364314191/cara-frews-debut-album?ref=category_newest)
+
+[Richie Nuzz Debut EP - Indie Release](https://www.kickstarter.com/projects/richienuzz/richie-nuzz-debut-ep-indie-release?ref=category_newest)
+
+[Vayden Live inside Maria Magdalenen-Kirche DVD & CD](https://www.kickstarter.com/projects/vayden/vayden-live-inside-maria-magdalenen-kirche?ref=category_newest)
+
+[Pestilence: The Third Album from Serpents](https://www.kickstarter.com/projects/trvemedia/pestilence-the-third-album-from-serpents?ref=category_newest)
+
+[Lester's Time Has Come Today](https://www.kickstarter.com/projects/lesterchambers/lesters-time-has-come-today?ref=category_newest)
+
+[Acoustic Dreams](https://www.kickstarter.com/projects/1095492005/acoustic-dreams?ref=category_newest)
+
+[Please Help Make Liv Free's '1 Hunnid' Video A Reality!](https://www.kickstarter.com/projects/907213988/please-help-make-liv-frees-1-hunnid-video-a-realit?ref=category_newest)
+
+[The Emish Experience](https://www.kickstarter.com/projects/emish/the-emish-experience?ref=category_newest)
+
+[Tango Album by Adam Tully](https://www.kickstarter.com/projects/adamtully/tango-album-by-adam-tully?ref=category_newest)
+
+[Cambodian Musicians to Tour America](https://www.kickstarter.com/projects/1537999307/cambodian-musicians-to-tour-america?ref=category_newest)
+
+[SUBTLE ANGELS: KODY 2- FINE ART NUDES](https://www.kickstarter.com/projects/badgirlartwork/subtle-angels-kody-2-fine-art-nudes?ref=category_newest)
+
+[Primeval Kings: The Art of Ken Kokoszka](https://www.kickstarter.com/projects/868769538/primeval-kings-the-art-of-ken-kokoszka?ref=category_newest)
+
+[The Time Travel Survival Guide](https://www.kickstarter.com/projects/chucklasker/the-time-travel-survival-guide?ref=category_newest)
+
+[AWE Magazine](https://www.kickstarter.com/projects/336260552/awe-magazine?ref=category_newest)
+
+[Duende District Bookstore Mobile Pop-Up!](https://www.kickstarter.com/projects/446906757/duende-district-bookstore-pop-up?ref=category_newest)
+
+[YUM YUM TO GO - App that lets you order food from your phone](https://www.kickstarter.com/projects/1119407374/yum-yum-to-go-app-that-lets-you-order-food-from-yo?ref=category_newest)
+
+[Rotary combustion engine](https://www.kickstarter.com/projects/1325629308/rotary-combustion-engine?ref=category_newest)
+
+[THE SERES AGENDA & THE PARALLEL TIME TRILOGY Book Publishing](https://www.kickstarter.com/projects/916813487/the-seres-agenda-and-the-parallel-time-trilogy-boo?ref=category_newest)
+
+[Newton Case - A Smart Case for Your Smartphone (iPhone 6)](https://www.kickstarter.com/projects/scottf/newton-case-a-smart-case-for-your-smartphone-iphon?ref=category_newest)
+
+[FTSE100 trading model](https://www.kickstarter.com/projects/2086715358/ftse100-trading-model?ref=category_newest)
+
+[symbiont | VR™ - Share in Each Other's Reality](https://www.kickstarter.com/projects/immergen-studios/symbiont-vrtm-share-in-each-others-reality?ref=category_newest)
+
+[Pick and Place Machine and/or Automatic SMT Feeders](https://www.kickstarter.com/projects/protovoltaics/pick-and-place-machine-by-protovoltaics?ref=category_newest)
+
+[BE-Alert - Never lose your Smart phone again!](https://www.kickstarter.com/projects/2134026934/be-alert-never-lose-your-smart-phone-again?ref=category_newest)
+
+[YaCyPi - Turnkey Raspberry Pi based Internet Search Engine](https://www.kickstarter.com/projects/1455616350/yacypi-turnkey-raspberry-pi-based-internet-search?ref=category_newest)
+
+[Fund the next evolution in the Wrestling Outsiders](https://www.kickstarter.com/projects/67585983/fund-the-next-evolution-in-the-wrestling-outsiders?ref=category_newest)
+
+[Wush](https://www.kickstarter.com/projects/1423557416/wush?ref=category_newest)
+
+[In-Browser, Lip Syncing 3D Avatar Animation Editor](https://www.kickstarter.com/projects/bsenftner/in-browser-lip-syncing-3d-avatar-animation-editor?ref=category_newest)
+
+[Support the Strange and Unusual, from fantasy to conspiracy](https://www.kickstarter.com/projects/987604337/represent-the-strange-and-unusual?ref=category_newest)
+
+[Minimal Wes Anderson prints](https://www.kickstarter.com/projects/swissanderson/minimal-wes-anderson-prints?ref=category_newest)
+
+[Alien Star Trek Species Art](https://www.kickstarter.com/projects/carrietheartist/unleash-the-alien-trekkie-in-you?ref=category_newest)
+
+[Fearless opportunity knocks for  art workshop & a solo show!](https://www.kickstarter.com/projects/elisebeattieartworks/fearless-opportunity-knocks-for-art-workshop-and-a?ref=category_newest)
+
+[Steller Glass Art Studio, and Gallery](https://www.kickstarter.com/projects/stellerglass/steller-glass-art-studio-and-gallery?ref=category_newest)
+
+[NYOBI #2](https://www.kickstarter.com/projects/773566346/nyobi-2-0?ref=category_newest)
+
+[Help fund Dudes patent!](https://www.kickstarter.com/projects/741308759/help-fund-dudes-patent?ref=category_newest)
+
+[Cedar's Classical Ballet Needs a Home](https://www.kickstarter.com/projects/1058202666/cedars-classical-ballet-needs-a-home?ref=category_newest)
+
+[The Rebuilding of the Cora School for Dance](https://www.kickstarter.com/projects/1572665139/the-rebuilding-of-the-cora-school-for-dance?ref=category_newest)
+
+[Forest Craft UK](https://www.kickstarter.com/projects/2105204560/forest-craft-uk?ref=category_newest)
+
+[YOGATO Inspirational Yoga Clothing](https://www.kickstarter.com/projects/466595289/yogato-inspirational-yoga-clothing?ref=category_newest)
+
+[ROAD COAT™ Car Seat Safe Outerwear with Performance & Style!](https://www.kickstarter.com/projects/1339208687/road-coattm-car-seat-safe-outerwear-with-performan?ref=category_newest)
+
+[The End](https://www.kickstarter.com/projects/goldenlightwa/the-end-5?ref=category_newest)
+
+[GOODBYE, YOU](https://www.kickstarter.com/projects/358464038/goodbye-you?ref=category_newest)
+
+[It's Not as If... (Women Fall from the Sky)](https://www.kickstarter.com/projects/973073370/its-not-as-if-women-fall-from-the-sky?ref=category_newest)
+
+[Leading to Revelation](https://www.kickstarter.com/projects/connectedkiller/leading-to-revelation?ref=category_newest)
+
+[Smoke E.Z.](https://www.kickstarter.com/projects/spencerfox/smoke-ez?ref=category_newest)
+
+[Never Too Much](https://www.kickstarter.com/projects/mitchellsilvius/never-too-much?ref=category_newest)
+
+[High Tech, Low Life](https://www.kickstarter.com/projects/1890785039/high-tech-low-life?ref=category_newest)
+
+[\"The Key\" - Post-production, Marketing & Distributing](https://www.kickstarter.com/projects/691590242/post-production-marketing-and-distributing-for-the?ref=category_newest)
+
+[My Story in a Late Style of Fire](https://www.kickstarter.com/projects/502676342/my-story-in-a-late-style-of-fire?ref=category_newest)
+
+[Strangers From Space (Working Title)](https://www.kickstarter.com/projects/195913214/strangers-from-space-working-title?ref=category_newest)
+
+[The Chazz Ellis Project](https://www.kickstarter.com/projects/1903602697/the-chazz-ellis-project?ref=category_newest)
+
+[OFF THE GRID](https://www.kickstarter.com/projects/596832026/off-the-grid-1?ref=category_newest)
+
+[Simple Man Pizza Co.](https://www.kickstarter.com/projects/2114608968/simple-man-pizza-co?ref=category_newest)
+
+[Cat Eats Dogs - A Hot Dog Recipe Book Starring Tuna The Cat](https://www.kickstarter.com/projects/1231589951/cat-eats-dogs-a-hot-dog-recipe-book-starring-tuna?ref=category_newest)
+
+[purEssence](https://www.kickstarter.com/projects/puressence/puressence?ref=category_newest)
+
+[Oddball Fermentables Cysery](https://www.kickstarter.com/projects/925568850/oddball-fermentables-cysery?ref=category_newest)
+
+[Bleeding Heart Brewery](https://www.kickstarter.com/projects/bleedingheartbrewery/bleeding-heart-brewery?ref=category_newest)
+
+[BRINGING UNIQUE SWEETS TO THE STREETS!](https://www.kickstarter.com/projects/uniquesweets/bringing-unique-sweets-to-the-streets?ref=category_newest)
+
+[The Sisterhood of Blood - Playing Cards](https://www.kickstarter.com/projects/52ravens/the-sisterhood-of-blood-playing-cards?ref=category_newest)
+
+[CPU Wars Volume 1.0 - The Card Game](https://www.kickstarter.com/projects/harrymylo/cpu-wars-volume-10-the-card-game?ref=category_newest)
+
+[Sumer - A Game of Divine Strategy](https://www.kickstarter.com/projects/studiowumpus/sumer-a-game-of-divine-strategy?ref=category_newest)
+
+[Little Urban Achievers - Set of 14 in spincast resin](https://www.kickstarter.com/projects/674003445/little-urban-achievers-set-of-14-in-spincast-resin?ref=category_newest)
+
+[THIS AMERICAN LAND conservation series for television](https://www.kickstarter.com/projects/161348613/this-american-land-conservation-series-for-televis?ref=category_newest)
+
+[Seoul Sister](https://www.kickstarter.com/projects/1268334518/seoul-sister?ref=category_newest)
+
+[ARTEN WAY's 1st EP!!!](https://www.kickstarter.com/projects/artenwaymusic/arten-ways-1st-ep?ref=category_newest)
+
+[Vegas Blue - Another Citygrass Music Project from Jt Oaks](https://www.kickstarter.com/projects/jtoaks/vegas-blue-another-citygrass-music-project-from-jt?ref=category_newest)
+
+[The Song of the Righteous](https://www.kickstarter.com/projects/2117861113/the-song-of-the-righteous?ref=category_newest)
+
+[Release HISTORIAN by Gazelle Recordings](https://www.kickstarter.com/projects/528559233/release-historian-by-gazelle-recordings?ref=category_newest)
+
+[Leaves Russell is recording its debut full-length album](https://www.kickstarter.com/projects/1989606279/leaves-russell-is-recording-its-debut-full-length?ref=category_newest)
+
+[(BBTG) Boynton Beach Town God Entertainment](https://www.kickstarter.com/projects/107308116/bbtg-ent?ref=category_newest)
+
+[Charlie and the Foxtrots Debut Album Release](https://www.kickstarter.com/projects/charlieatfoxtrots/charlie-and-the-foxtrots-debut-album-release?ref=category_newest)
+
+[Shape the Rise of Shotgun Risk!!](https://www.kickstarter.com/projects/1042189171/shape-the-rise-of-shotgun-risk?ref=category_newest)
+
+[iD Media (Entertainment Company)](https://www.kickstarter.com/projects/1986084108/id-media-entertainment-company?ref=category_newest)
+
+[Building handmade musical instruments in Brazilian favelas](https://www.kickstarter.com/projects/375233746/building-handmade-musical-instruments-in-brazilian?ref=category_newest)
+
+[Get Stamps to SXSW & the Rock For Justice Tour!](https://www.kickstarter.com/projects/stampstheband/get-stamps-to-sxsw-and-the-rock-for-justice-tour?ref=category_newest)
+
+[Buy Film, not Megapixels](https://www.kickstarter.com/projects/1469080916/buy-film-not-megapixels-0?ref=category_newest)
+
+[Jeremy the Bear!... Statues (Suspended)](https://www.kickstarter.com/projects/1537552237/jeremy-the-bear-statues?ref=category_newest)
+
+[Discover Iceland Photobook & eBook Photography Guide](https://www.kickstarter.com/projects/1217986271/discover-iceland-photobook-and-ebook-photography-g?ref=category_newest)
+
+[TSQ: Transgender Studies Quarterly](https://www.kickstarter.com/projects/tsq/tsq-transgender-studies-quarterly?ref=category_newest)
+
+[Labors of Love: how making, giving, and community intersect](https://www.kickstarter.com/projects/56673590/labors-of-love-how-making-giving-and-community-int?ref=category_newest)
+
+[Random Thoughts of a Bored Artist: The Book](https://www.kickstarter.com/projects/756335149/random-thoughts-of-a-bored-artist-the-book?ref=category_newest)
+
+[Check Please!  A Collection of Art on Guest Checks](https://www.kickstarter.com/projects/superugly/check-please-a-collection-of-art-on-guest-checks-0?ref=category_newest)
+
+[Starfish on the Beach - Children's Book](https://www.kickstarter.com/projects/2036790405/starfish-on-the-beach-childrens-book?ref=category_newest)
+
+[\" Reset Button \"...The motivation project](https://www.kickstarter.com/projects/387579300/reset-button-the-motivation-project?ref=category_newest)
+
+[My Best Friend Was The Chocolate Cake](https://www.kickstarter.com/projects/1080542146/my-best-friend-was-the-chocolate-cake?ref=category_newest)
+
+[Hambre de amor](https://www.kickstarter.com/projects/fronin/hambre-de-amor?ref=category_newest)
+
+[BOYS FROM HOUSTON, Remembering Love Street](https://www.kickstarter.com/projects/1446036966/boys-from-houston-remembering-love-street?ref=category_newest)
+
+[Keep Live Music on WMSE](https://www.kickstarter.com/projects/wmse/keep-live-music-on-wmse?ref=category_newest)
+
+[LOTUS Life Learning - Personal Empowerment for Students](https://www.kickstarter.com/projects/912667702/lotus-life-learning?ref=category_newest)
+
+[1/10 custom RC charity project](https://www.kickstarter.com/projects/857807839/1-10-custom-rc-charity-project?ref=category_newest)
+
+[BRiK DIY Wireless Speaker System - Customize It Your Way](https://www.kickstarter.com/projects/brik/brik-diy-wireless-speaker-system-customize-it-your?ref=category_newest)
+
+[MiniToy 3D Printer](https://www.kickstarter.com/projects/402635577/minitoy-3d-printer?ref=category_newest)
+
+[Cleantime Calculator for Windows Phone](https://www.kickstarter.com/projects/113305412/cleantime-calculator-for-windows-phone?ref=category_newest)
+
+[100% Soloar powered LED lights and patio umbrella](https://www.kickstarter.com/projects/818750162/100-soloar-powered-led-lights-and-patio-umbrella?ref=category_newest)
+
+[create constant energy for your home! with this!](https://www.kickstarter.com/projects/2079604574/create-constant-energy-for-your-home-with-this?ref=category_newest)
+
+[GPS Cookie - Leaving Crumbs Wherever it Goes](https://www.kickstarter.com/projects/richardhaberkern/gps-cookie-leaving-crumbs-wherever-it-goes?ref=category_newest)
+
+[Elemental Fusion - crazy windows performance results](https://www.kickstarter.com/projects/469810502/elemental-fusion?ref=category_newest)
+
+[Autism Ascending](https://www.kickstarter.com/projects/sarkism/autism-ascending?ref=category_newest)
+
+[Kalabox. Advanced Web Tools for the People.](https://www.kickstarter.com/projects/kalabox/kalabox-advanced-web-tools-for-the-people?ref=category_newest)
+
+[ERIE CANAL BICENTENNIAL LAPEL PIN](https://www.kickstarter.com/projects/109426391/erie-canal-bicentennial-lapel-pin?ref=category_newest)
+
+[Artist Beer Visions (ABV)](https://www.kickstarter.com/projects/3rdrailpresents/artist-beer-visions?ref=category_newest)
+
+[Touken Ranbu Collaborative Fanbook](https://www.kickstarter.com/projects/torabufanbook/touken-ranbu-collaborative-fanbook?ref=category_newest)
+
+[the struggling artist: Flatpack Art](https://www.kickstarter.com/projects/304030425/the-struggling-artist-flatpack-art-0?ref=category_newest)
+
+[Paintings made by Chance](https://www.kickstarter.com/projects/465313125/paintings-made-by-chance?ref=category_newest)
+
+[Tribal Magma Project ( expo photo/création association )](https://www.kickstarter.com/projects/722503965/tribal-magma-project-expo-photo-creation-associati?ref=category_newest)
+
+[building Eco-brick benches with students](https://www.kickstarter.com/projects/270305503/building-eco-brick-benches-with-students?ref=category_newest)
+
+[\"Firenze\" - Printing Florence, Italy by the Yard](https://www.kickstarter.com/projects/1044161419/firenze-printing-florence-italy-by-the-yard?ref=category_newest)
+
+[Creating an All Natural Organic Products Line](https://www.kickstarter.com/projects/2042769068/creating-an-all-natural-organic-products-line?ref=category_newest)
+
+[Brethren Born#3:Deceptions. The Comic Series](https://www.kickstarter.com/projects/2124086510/brethren-born3-deceptions?ref=category_newest)
+
+[My Name Is Raoul - A Graphic Novel by Christopher Huh](https://www.kickstarter.com/projects/874379099/my-name-is-raoul-a-graphic-novel-by-christopher-hu?ref=category_newest)
+
+[Brick House Mural Project](https://www.kickstarter.com/projects/2137131733/brick-house-mural-project?ref=category_newest)
+
+[Ho'ololi: The Environmental Art Garden](https://www.kickstarter.com/projects/hui/hoololi-the-environmental-art-garden?ref=category_newest)
+
+[Lazarus field bone sculptures](https://www.kickstarter.com/projects/1347730694/lazarus-field-bone-sculptures?ref=category_newest)
+
+[Los Tres Gigantes Wooden Names with Character](https://www.kickstarter.com/projects/2040788400/los-tres-gigantes-wooden-names-with-character?ref=category_newest)
+
+[Deadstock Resurrection. Reborn to be Better](https://www.kickstarter.com/projects/1005506164/deadstock-resurrection-reborn-to-be-better?ref=category_newest)
+
+[Greenboy Enterprises- Clothing For the Young Businessman](https://www.kickstarter.com/projects/greenboy/greenboy-enterprises-clothing-for-the-young-busine?ref=category_newest)
+
+[TAGTOOL Stylus Titanium Pencil & Pens for iPad and iPhone](https://www.kickstarter.com/projects/grifiti/tagtool-stylus-mechanical-pencil-and-pens?ref=category_newest)
+
+[Travynizer : Changing the way we travel.](https://www.kickstarter.com/projects/1261729524/travynizer?ref=category_newest)
+
+[Cosmic and Rainbow Mermaid Enamel Pins](https://www.kickstarter.com/projects/cosmicmermaid/cosmic-and-rainbow-mermaid-enamel-pins?ref=category_newest)
+
+[The Playsuit: The Ultimate Suit for The Modern Woman](https://www.kickstarter.com/projects/568699158/the-playsuit-the-ultimate-suit-for-the-modern-woma?ref=category_newest)
+
+[Rayne's Jaded Metals - custom jewelry](https://www.kickstarter.com/projects/183146024/raynes-jaded-metals-custom-jewelry?ref=category_newest)
+
+[Hombrezz](https://www.kickstarter.com/projects/1117342273/hombrezz?ref=category_newest)
+
+[HEALTH FOR ALL: A film on health care alternatives in India](https://www.kickstarter.com/projects/jdodson/documenting-health-care-alternatives-in-india?ref=category_newest)
+
+[\"The Box\" ~ The Film](https://www.kickstarter.com/projects/523972949/the-box?ref=category_newest)
+
+[M.O.M:  Confessions of a Male Orthodox Model](https://www.kickstarter.com/projects/354778343/mom-confessions-of-a-male-orthodox-model?ref=category_newest)
+
+[Have fun learning English, with KawaiiSurprises!](https://www.kickstarter.com/projects/2038040420/have-fun-learning-english-with-kawaiisurprises?ref=category_newest)
+
+[The Aisle (short film)](https://www.kickstarter.com/projects/moordoormedia/the-aisle-short-film?ref=category_newest)
+
+[Indescribable](https://www.kickstarter.com/projects/thorncrownproject/indescribable?ref=category_newest)
+
+[Some Things Should Never Be For Sale](https://www.kickstarter.com/projects/1041436663/some-things-should-never-be-for-sale?ref=category_newest)
+
+[On the Couch with Coco & Tish](https://www.kickstarter.com/projects/2038462737/on-the-couch-with-coco-and-tish?ref=category_newest)
+
+[Delicious Gluten Free Goodies](https://www.kickstarter.com/projects/2027169141/delicious-gluten-free-goodies?ref=category_newest)
+
+[Warm Leaves: Adventure Through the World of Loose Leaf Tea](https://www.kickstarter.com/projects/1397697909/warm-leaves-adventure-through-the-world-of-loose-l?ref=category_newest)
+
+[A Date With My Gyno](https://www.kickstarter.com/projects/786396308/a-date-with-my-gyno?ref=category_newest)
+
+[SUPPORT THE LOCALS!](https://www.kickstarter.com/projects/reddandhj/support-the-locals?ref=category_newest)
+
+[Heywood Restaurant Bar Wilmington,De](https://www.kickstarter.com/projects/1607143062/heywood-restaurant-bar-wilmingtonde?ref=category_newest)
+
+[The Farm Brewery](https://www.kickstarter.com/projects/1457266275/the-farm-brewery?ref=category_newest)
+
+[North Park Nuttery - Beer Glazed Nuts - Help me buy an oven](https://www.kickstarter.com/projects/6755406/north-park-nuttery-beer-glazed-nuts-help-me-buy-an?ref=category_newest)
+
+[Smyles Sweet&Savory Jam](https://www.kickstarter.com/projects/602780684/smyles-sweetandsavory-jam?ref=category_newest)
+
+[Click Bait: The Card Game](https://www.kickstarter.com/projects/2140287956/click-bait?ref=category_newest)
+
+[Tears of a Machine](https://www.kickstarter.com/projects/robotclaw/tears-of-a-machine?ref=category_newest)
+
+[Madison King's Second Full-Length Album](https://www.kickstarter.com/projects/1442285689/madison-kings-second-full-length-album?ref=category_newest)
+
+[The Bernard Daily: An ad-free golf news aggregator website](https://www.kickstarter.com/projects/1634627274/the-bernard-daily-an-ad-free-golf-news-aggregator?ref=category_newest)
+
+[Fiction and emotional truths in song](https://www.kickstarter.com/projects/343734803/fiction-and-emotional-truths-in-song?ref=category_newest)
+
+[Rawhide with Elegance - A Biography of April Rector](https://www.kickstarter.com/projects/581983779/rawhide-with-elegance-a-biography-of-april-rector?ref=category_newest)
+
+[(un)fold](https://www.kickstarter.com/projects/161012329/unfold?ref=category_newest)
+
+[Biff Tannen's Debut Album \"Fluxin\"](https://www.kickstarter.com/projects/heybiff/debut-album-fluxin?ref=category_newest)
+
+[This album is \"Dedicated\". . .](https://www.kickstarter.com/projects/1777855742/this-album-is-dedicated?ref=category_newest)
+
+[Prohibition Records: Protest in Song.](https://www.kickstarter.com/projects/2098205502/prohibition-records-protest-in-song?ref=category_newest)
+
+[Cory Allen Trio - \"All in Good Fun\"](https://www.kickstarter.com/projects/203785527/cory-allen-trio-all-in-good-fun?ref=category_newest)
+
+[Led Bib New Studio Album and Live Vinyl Release](https://www.kickstarter.com/projects/ledbib/led-bib-new-studio-album-and-live-vinyl-release?ref=category_newest)
+
+[Simply Jazz and Blues Festival](https://www.kickstarter.com/projects/906383866/simply-jazz-and-blues-festival?ref=category_newest)
+
+[Desert Stars Festival 9/25 & 9/26 at Pappy & Harriets](https://www.kickstarter.com/projects/873093506/desert-stars-festival-9-25-and-9-26-at-pappy-and-h?ref=category_newest)
+
+[The Legacy Show](https://www.kickstarter.com/projects/jaygoodmanbass/the-legacy-show?ref=category_newest)
+
+[NEELY acoustic album with \"Complete (The Wedding Song)\"](https://www.kickstarter.com/projects/neelymusic/neely-acoustic-album-with-complete-the-wedding-son?ref=category_newest)
+
+[Rendezvous Photographic Exhibition](https://www.kickstarter.com/projects/240527763/rendezvous-photographic-exhibition?ref=category_newest)
+
+[Finally pro record all songs for the group \"By the Campfire\"](https://www.kickstarter.com/projects/phorbin/finally-pro-record-all-songs-for-the-group-by-the?ref=category_newest)
+
+[New York Tattoo](https://www.kickstarter.com/projects/679732297/new-york-tattoo?ref=category_newest)
+
+[\"Grandpa's Cars\" - A Child's Ride Through History In Vibrant Watercolors and Stories](https://www.kickstarter.com/projects/GrandpaLine/grandpas-cars-a-childs-ride-through-history-in-vib?ref=category_newest)
+
+[Enloe - a novel by Joshua Linscott](https://www.kickstarter.com/projects/520293362/enloe-a-novel-by-joshua-linscott?ref=category_newest)
+
+[Roadie the Ranch Dog's big day!](https://www.kickstarter.com/projects/wwwhilinenationcom/roadie-the-ranch-dogs-big-day-0?ref=category_newest)
+
+[One Chance for One Chance!](https://www.kickstarter.com/projects/1020310203/one-chance-for-one-chance?ref=category_newest)
+
+[Life's Album](https://www.kickstarter.com/projects/1581744141/lifes-album?ref=category_newest)
+
+[Parametric Ceiling Object Tool for ARCHICAD](https://www.kickstarter.com/projects/1665551355/parametric-ceiling-object-tool-for-archicad?ref=category_newest)
+
+[LookLEDTV a 4-D standalone ambilight system for TV and PC](https://www.kickstarter.com/projects/153779262/lookledtv?ref=category_newest)
+
+[Clariden Robotics 2015](https://www.kickstarter.com/projects/1224435831/clariden-robotics-2015?ref=category_newest)
+
+[Talk to the Terma.  See what your body says about you](https://www.kickstarter.com/projects/srd3/talk-to-the-terma-see-what-your-body-says-about-yo?ref=category_newest)
+
+[La Mariposa Borracha](https://www.kickstarter.com/projects/1844109986/la-mariposa-borracha?ref=category_newest)
+
+[A Musical At ZoeDance](https://www.kickstarter.com/projects/180662572/a-musical-at-zoedance?ref=category_newest)
+
+[Candidate Verification](https://www.kickstarter.com/projects/707717034/candidate-verification?ref=category_newest)
+
+[WRITTEN ON ICE](https://www.kickstarter.com/projects/miguelrs/written-on-ice-escrito-sobre-hielo?ref=category_newest)
+
+[Bring Dumbo Press to San Anto Cultural Arts](https://www.kickstarter.com/projects/sananto/bring-dumbo-press-to-san-anto-cultural-arts?ref=category_newest)
+
+[The BonezArt Project](https://www.kickstarter.com/projects/477850503/the-bonezart-project?ref=category_newest)
+
+[Wood Burning Laser Etching and Cutting](https://www.kickstarter.com/projects/2077893305/wood-burning-laser-etching-and-cutting?ref=category_newest)
+
+[Blues At The Top Of The World](https://www.kickstarter.com/projects/bluesatthetop/blues-at-the-top-of-the-world?ref=category_newest)
+
+[Matchless Knack](https://www.kickstarter.com/projects/2033538809/matchless-knack?ref=category_newest)
+
+[Monsters of the Deep](https://www.kickstarter.com/projects/jonmarchione/monsters-of-the-deep?ref=category_newest)
+
+[Autistic Children Creating Art](https://www.kickstarter.com/projects/551724394/art-projects-provided-by-autistic-children?ref=category_newest)
+
+[Indy Winter Solstice](https://www.kickstarter.com/projects/414119884/indy-winter-solstice?ref=category_newest)
+
+[Persepolis, Texas: FOBspring to Drag Queen In One Generation](https://www.kickstarter.com/projects/mfr/persepolis-texas-fobspring-to-drag-queen-in-one-ge?ref=category_newest)
+
+[NOTTI & NYCE Ménage à Trois by: Counterpoint Comics](https://www.kickstarter.com/projects/33693976/notti-and-nyce-menage-a-trois-by-counterpoint-comi?ref=category_newest)
+
+[Villain](https://www.kickstarter.com/projects/bilbo/villain?ref=category_newest)
+
+[Not So Super Comics](https://www.kickstarter.com/projects/jacques/not-so-super-comics?ref=category_newest)
+
+[Electric Brewing](https://www.kickstarter.com/projects/27032506/electric-brewing?ref=category_newest)
+
+[SCREW Lowe’s® and Home Depot®](https://www.kickstarter.com/projects/1569307562/screw-lowes-and-home-depot?ref=category_newest)
+
+[PARC presents Baba Yaga - An Original Story Ballet](https://www.kickstarter.com/projects/1895743615/parc-presents-baba-yaga-an-original-story-ballet?ref=category_newest)
+
+[AARTS (Ancient Art Replicas That Sell)](https://www.kickstarter.com/projects/89930514/aarts-ancient-art-replicas-that-sell?ref=category_newest)
+
+[Help Finish This Stone Sculpture!](https://www.kickstarter.com/projects/1719908206/finish-this-stone-sculpture?ref=category_newest)
+
+[The Secret Sculpture Garden](https://www.kickstarter.com/projects/tdurgin/the-secret-sculpture-garden?ref=category_newest)
+
+[Cute Valentine’s Day Cards and Wishful Birthday Cards](https://www.kickstarter.com/projects/1468978339/cute-valentines-day-cards-and-wishful-birthday-car?ref=category_newest)
+
+[Watches to Travel through Time](https://www.kickstarter.com/projects/1221639153/watches-to-travel-through-time?ref=category_newest)
+
+[Happy Ears | The next generation earplug](https://www.kickstarter.com/projects/happyears/happy-ears-the-next-generation-earplug?ref=category_newest)
+
+[TEKNIQ - A Camera Strap / Cuff and  Modular Camera Bag](https://www.kickstarter.com/projects/1455836023/tekniq-a-modular-camera-bag-3-bags-in-1?ref=category_newest)
+
+[OneLessDrop](https://www.kickstarter.com/projects/deanheckler/onelessdrop?ref=category_newest)
+
+[Zipi: magnetic earbud strap](https://www.kickstarter.com/projects/746130101/zipi-magnetic-earbud-strap?ref=category_newest)
+
+[Warped Humor Tees](https://www.kickstarter.com/projects/180655706/warped-humor-tees?ref=category_newest)
+
+[Battle of New Orleans: 2015 Bicentennial Documentary](https://www.kickstarter.com/projects/louisianafilmmuseum/battle-of-new-orleans-2015-bicentennial-documentar?ref=category_newest)
+
+[Bring THE MOO MAN to UK cinemas](https://www.kickstarter.com/projects/1438468236/bring-the-moo-man-to-uk-cinemas?ref=category_newest)
+
+[Digging history: getting dirty has never been so educational](https://www.kickstarter.com/projects/dariusarya/digging-history-getting-dirty-has-never-been-so-ed?ref=category_newest)
+
+[Lit Accessories](https://www.kickstarter.com/projects/1008196650/lit-accessories?ref=category_newest)
+
+[Sow A Seed of HOPE](https://www.kickstarter.com/projects/1857665973/sow-a-seed-of-hope?ref=category_newest)
+
+[Control your Nudity!](https://www.kickstarter.com/projects/650691262/control-your-nudity?ref=category_newest)
+
+[Stupefy the World With Us, Completing Stella Archer](https://www.kickstarter.com/projects/1099717066/stupefy-the-world-with-us-completing-stella-archer?ref=category_newest)
+
+[Deterrent - Feature Film](https://www.kickstarter.com/projects/deterrentmovie/deterrent-feature-film-0?ref=category_newest)
+
+[Comics in Focus: Chris Claremont's X-Men](https://www.kickstarter.com/projects/sequart/comics-in-focus-chris-claremonts-x-men?ref=category_newest)
+
+[GRINGO TRAILS - a documentary](https://www.kickstarter.com/projects/1849872099/gringo-trails-a-documentary?ref=category_newest)
+
+[Somnio](https://www.kickstarter.com/projects/1253988732/somnio?ref=category_newest)
+
+[Sticky Wicket (Indie Feature)](https://www.kickstarter.com/projects/2066301720/sticky-wicket-indie-feature?ref=category_newest)
+
+[Petting Zoo](https://www.kickstarter.com/projects/184782432/petting-zoo?ref=category_newest)
+
+[Escape from North Korea](https://www.kickstarter.com/projects/253012343/escape-from-north-korea?ref=category_newest)
+
+[Elevate](https://www.kickstarter.com/projects/dreamfactory/elevate?ref=category_newest)
+
+[Carneys Point](https://www.kickstarter.com/projects/alexparkin/carneys-point?ref=category_newest)
+
+[Reality - A Short Film Project](https://www.kickstarter.com/projects/christiangentry/reality-a-short-film-project?ref=category_newest)
+
+[World's 1st,,Finest ARTISAN Crafted water waits for you.](https://www.kickstarter.com/projects/954105265/worlds-1stfinest-artisan-crafted-water-waits-for-y?ref=category_newest)
+
+[Night Donkey Brewing Equipment Upgrades](https://www.kickstarter.com/projects/1308006097/night-donkey-brewing-equipment-upgrades?ref=category_newest)
+
+[Nightwatch](https://www.kickstarter.com/projects/nightwatch/nightwatch?ref=category_newest)
+
+[Roscoe Bakery Cakes](https://www.kickstarter.com/projects/772008830/fondant-sheeter-for-custom-cakes?ref=category_newest)
+
+[Deanston House - CT's Newest Banquet & Event Destination](https://www.kickstarter.com/projects/1253886092/deanston-house-cts-newest-banquet-and-event-destin?ref=category_newest)
+
+[Lo Lo's Market](https://www.kickstarter.com/projects/1365799605/lo-los-market?ref=category_newest)
+
+[I WANT TO BE A FARMER](https://www.kickstarter.com/projects/2136889147/i-want-to-be-a-farmer?ref=category_newest)
+
+[Coffee Shop Building Purchase](https://www.kickstarter.com/projects/1462180394/coffee-shop-building-purchase?ref=category_newest)
+
+[Join Danny A United States Air Force Veteran donate $15](https://www.kickstarter.com/projects/528917941/join-danny-a-united-states-air-force-veteran-donat?ref=category_newest)
+
+[Wine Barrel Cocktail Arcade machine with 60 old school games](https://www.kickstarter.com/projects/837621998/wine-barrel-cocktail-arcade-machine-with-60-old-sc?ref=category_newest)
+
+[Fast & Furious: Full Throttle](https://www.kickstarter.com/projects/gamesalute/fast-and-furious-full-throttle?ref=category_newest)
+
+[DIVA WARS Game of Networking Connections](https://www.kickstarter.com/projects/monicasparks/diva-wars-game-of-networking-connections?ref=category_newest)
+
+[GamesMaster HD - Final Episode](https://www.kickstarter.com/projects/1666312920/gamesmaster-hd-final-episode?ref=category_newest)
+
+[A Christmas Album from Her Majesty's Orchestra](https://www.kickstarter.com/projects/512473833/a-christmas-album-from-her-majestys-orchestra?ref=category_newest)
+
+[Let Your Mind Roll On: The Jug Band Interview Project](https://www.kickstarter.com/projects/935458226/let-your-mind-roll-on-the-jug-band-interview-proje?ref=category_newest)
+
+[Gannon University's Erie Chamber Orchestra: A New Era](https://www.kickstarter.com/projects/eriechamberorchestra/gannon-universitys-erie-chamber-orchestra-a-new-er?ref=category_newest)
+
+[Prelude to a Nightmare is going on Tour!](https://www.kickstarter.com/projects/1998806123/make-my-nightmare-a-reality?ref=category_newest)
+
+[La Revue de Paris - Kathryn Tarko's Fall Cello Recital](https://www.kickstarter.com/projects/245373601/la-revue-de-paris-kathryn-tarkos-fall-cello-recita?ref=category_newest)
+
 [Islands Of Diamonds: Bring our video game to Android!](https://www.kickstarter.com/projects/2025503943/islands-of-diamonds-bring-the-rolling-to-android?ref=category_newest)
-[Lost Valley](https://www.kickstarter.com/projects/pandasaurus/lost-valley?ref=category_newest)
-[The “Gift” of Changing and Aging - Joy in Retirement](https://www.kickstarter.com/projects/664395023/the-gift-of-changing-and-aging-joy-in-retirement?ref=category_newest)
-[Help A Writer Get Noticed](https://www.kickstarter.com/projects/1021663644/help-a-writer-get-noticed?ref=category_newest)
-[Vanessa Hartley's debut album \"Passivity\"](https://www.kickstarter.com/projects/vanessahartley/vanessa-hartleys-debut-album-passivity?ref=category_newest)
-[LOAN DATA FINDER](https://www.kickstarter.com/projects/884259540/loan-data-finder?ref=category_newest)
-[Matthew Hayward Macdonald Solo CD](https://www.kickstarter.com/projects/146257454/music-cd-manufacturing?ref=category_newest)
-[Inspirational BASE Jump (Suspended)](https://www.kickstarter.com/projects/1769671064/inspirational-base-jump?ref=category_newest)
-[Firefish - The Music of Blake Tyson](https://www.kickstarter.com/projects/811648357/firefish-the-music-of-blake-tyson?ref=category_newest)
-[Let There Be Light: Worship Project](https://www.kickstarter.com/projects/1348109795/let-there-be-light-worship-project?ref=category_newest)
-[RMean: 7 Deadly Sins LP and Art & Lyrics Book](https://www.kickstarter.com/projects/rmean/r-mean-7-deadly-sins-lp-and-lyric-and-art-book?ref=category_newest)
-[Get Joy Shannon's Album \"Out of My Dreams and Into My Arms\"](https://www.kickstarter.com/projects/joyshannon/get-joy-shannons-album-out-of-my-dreams-and-into-m?ref=category_newest)
-[Kids Love Spell N Sing](https://www.kickstarter.com/projects/50275034/kids-love-spell-n-sing?ref=category_newest)
-[Album Production for 'Cositas de Mar'](https://www.kickstarter.com/projects/690344191/album-production-for-cositas-de-mar?ref=category_newest)
-[Bad Luck Blackouts Live At John Henry's CD](https://www.kickstarter.com/projects/1557940888/bad-luck-blackouts-live-at-john-henrys-cd?ref=category_newest)
-[Simón's Latin-Punk (Anti) X-mas Video](https://www.kickstarter.com/projects/1348561579/simons-latin-punk-anti-x-mas-video?ref=category_newest)
-[Cellist's Debut Album- FOLKFIRE: INSPIRED BY SONG & DANCE](https://www.kickstarter.com/projects/hartka/cellists-debut-album-folkfire-inspired-by-song?ref=category_newest)
-[Help Fund My New EP!](https://www.kickstarter.com/projects/822953669/help-fund-my-new-ep?ref=category_newest)
-[Fragments of the Ordinary](https://www.kickstarter.com/projects/134189834/fragments-of-the-ordinary?ref=category_newest)
-[Autant de Montréalais](https://www.kickstarter.com/projects/ericsoucy/autant-de-montrealais?ref=category_newest)
-[3, 2, 1 PRINT !](https://www.kickstarter.com/projects/1783609646/3-2-1-print?ref=category_newest)
-[\"Seventy-Two Hours\": A Photo Book by Noah Jashinski](https://www.kickstarter.com/projects/398197911/seventy-two-hours-a-photo-book-by-noah-jashinski?ref=category_newest)
-[Help me make True Life Photography a reality!](https://www.kickstarter.com/projects/611626768/help-me-make-true-life-photography-a-reality?ref=category_newest)
-[I Love Vapor](https://www.kickstarter.com/projects/155421169/i-love-vapor?ref=category_newest)
-[San Diego from 7000!](https://www.kickstarter.com/projects/820310205/san-diego-from-7000?ref=category_newest)
-[Green-Project Postcards: \"Missions of San Antonio\" Texas.](https://www.kickstarter.com/projects/petediazart/missions-of-san-antonio-cathedrals-eco-friendly-po?ref=category_newest)
-[Volatile Traversal: Explorations of Home & Body](https://www.kickstarter.com/projects/1381361501/volatile-traversal-explorations-of-home-and-body?ref=category_newest)
-[Greco Burned the Toast! A Children's Book on Perfectionism](https://www.kickstarter.com/projects/470743077/greco-burned-the-toast-a-childrens-book-on-perfect?ref=category_newest)
-[Some Babies Are Adopted - A Children's Book About Adoption](https://www.kickstarter.com/projects/350140349/some-babies-are-adopted-a-childrens-book-about-ado?ref=category_newest)
-[POETRY BOOK, Has Doubts Vol 1: \"Mistaken for art or rubbish\"](https://www.kickstarter.com/projects/artorrubbish/poetry-book-has-doubts-vol-1-mistaken-for-art-or-r?ref=category_newest)
-[Letters from the Earth](https://www.kickstarter.com/projects/1459615436/letters-from-the-earth-0?ref=category_newest)
-[Focus: The First Multi-material Portable 3D Printer](https://www.kickstarter.com/projects/1333614982/focus-the-first-multi-material-portable-3d-printer?ref=category_newest)
-[Snapmaker : The All-Metal 3D Printer](https://www.kickstarter.com/projects/snapmaker/snapmaker-the-all-metal-3d-printer?ref=category_newest)
-[TimeSmart](https://www.kickstarter.com/projects/925598235/timesmart?ref=category_newest)
-[The Wishlist](https://www.kickstarter.com/projects/1939779057/the-wishlist?ref=category_newest)
-[RapidSOS One-Touch-911](https://www.kickstarter.com/projects/rapidsos/rapidsos-one-touch-911?ref=category_newest)
-[The SafeSide App brings Responsibility and Safety Outdoors](https://www.kickstarter.com/projects/safeside/the-safeside-app-brings-responsibility-and-safety?ref=category_newest)
-[Bowl Buddy: Customizable Toilet Poo Vapor Remover](https://www.kickstarter.com/projects/101836278/bowl-buddy-customizable-toilet-poo-vapor-remover?ref=category_newest)
-[Any-Length](https://www.kickstarter.com/projects/84205751/any-length?ref=category_newest)
-[µRuler - Measure size in the micro-world under Microscope](https://www.kickstarter.com/projects/1289187249/ruler-measure-size-in-the-micro-world-under-micros?ref=category_newest)
-[303 SS Pen 2](https://www.kickstarter.com/projects/1839149601/303-ss-pen-2?ref=category_newest)
-[Trebuchette - the snap-together, desktop trebuchet](https://www.kickstarter.com/projects/1803756771/trebuchette-the-snap-together-desktop-trebuchet?ref=category_newest)
-[Austin Tinkering School: the Expansion](https://www.kickstarter.com/projects/174430808/austin-tinkering-school-the-expansion?ref=category_newest)
-[HaloTouch - A New Way to Interact with Android Devices!](https://www.kickstarter.com/projects/halotouch/halotouch-a-new-way-to-interact-with-your-smart-de?ref=category_newest)
-[Modern CSC 2013](https://www.kickstarter.com/projects/213784708/modern-csc-2013?ref=category_newest)
-[Let's Rethink Social with Goals](https://www.kickstarter.com/projects/joshsmith/lets-rethink-social-with-goals?ref=category_newest)
-[Game Exchange Network](https://www.kickstarter.com/projects/214447630/game-exchange-network?ref=category_newest)
-[HEXA: Programmable, Highly Maneuverable Robot](https://www.kickstarter.com/projects/1090670314/hexa-programmable-highly-maneuverable-robot?ref=category_newest)
-[PatternsLibrary](https://www.kickstarter.com/projects/garofaloenterprises/patternslibrary?ref=category_newest)
-[A future for Social Platforms](https://www.kickstarter.com/projects/632310357/a-future-for-social-platforms?ref=category_newest)
-[Ex Communication](https://www.kickstarter.com/projects/1575606296/ex-communication?ref=category_newest)
-[FML I'm 20-something (SARCASM)](https://www.kickstarter.com/projects/kimberlynminor/fml-im-20-something-sarcasm?ref=category_newest)
-[AMERICAN PSYCHO](https://www.kickstarter.com/projects/1798121016/american-psycho?ref=category_newest)
-[Foundry Theatre Brisbane](https://www.kickstarter.com/projects/888470436/foundry-theatre-brisbane?ref=category_newest)
-[David Facer, Paradox Magic](https://www.kickstarter.com/projects/paradoxmagic/david-facer-paradox-magic?ref=category_newest)
-[Ega-loan-tarian](https://www.kickstarter.com/projects/1508851762/ega-loan-tarian?ref=category_newest)
-[All Aboard Cast Recording](https://www.kickstarter.com/projects/1091608635/all-aboard-cast-recording?ref=category_newest)
-[From Providence to Cuba: A Historic Theater Adventure](https://www.kickstarter.com/projects/968556287/a-providence-to-cuba-theater-adventure?ref=category_newest)
-[Let's Draw Underwater!!!](https://www.kickstarter.com/projects/huntermadeit/lets-draw-underwater?ref=category_newest)
-[Animating in the Nude](https://www.kickstarter.com/projects/fabianmolina/animating-in-the-nude?ref=category_newest)
-[The Watcher Oil Painting - 2013 Limited Edition print run](https://www.kickstarter.com/projects/michaelbielaczyc/the-watcher-oil-painting-2013-limited-edition-prin?ref=category_newest)
-[Buy Lauren and Josh Hermit Crabs.](https://www.kickstarter.com/projects/1827067912/buy-lauren-and-josh-hermit-crabs?ref=category_newest)
-[Zelda: Majora's Mask Reproductions](https://www.kickstarter.com/projects/1149526007/zelda-majoras-mask-reproductions?ref=category_newest)
-[Horizons Comic](https://www.kickstarter.com/projects/horizonscomic/horizons-comic?ref=category_newest)
-[The AMAZING ART of GREG \"DARK ONE\" WILLIAMS](https://www.kickstarter.com/projects/1655558466/dark-ones-survival-kit-art-of-greg-williams-hardco?ref=category_newest)
-[Kirk Lindo's VAMPEROTICA MAGAZINE COLLECTION V1 - V4](https://www.kickstarter.com/projects/vamperotica/kirk-lindos-vamperotica-magazine-collection-v1-v4?ref=category_newest)
-[Pick a Cosmic Doodle Card -like a fortune- for your message!](https://www.kickstarter.com/projects/tinatames/pick-a-cosmic-doodle-card-like-a-fortune-for-your?ref=category_newest)
-[League of Legends Papercraft](https://www.kickstarter.com/projects/1189518352/league-of-legends-papercraft?ref=category_newest)
-[Burrito Scented Candle Collection](https://www.kickstarter.com/projects/1492308737/burrito-scented-candle-collection?ref=category_newest)
-[HALO - BRIGHT LED BELT - BE SEEN, BE SAFE](https://www.kickstarter.com/projects/137677097/halo-led-sport-belt?ref=category_newest)
-[Grateful Dead Live Concert Cover Art 4 iTunes, iPods & Dash](https://www.kickstarter.com/projects/lilrichwhiteboy/grateful-dead-live-concerts-cover-art?ref=category_newest)
-[The Magwoods: Magnets That Help You Do More](https://www.kickstarter.com/projects/63359481/the-magwoods-magnets-that-help-you-do-more?ref=category_newest)
-[Bella Singleton AW16](https://www.kickstarter.com/projects/875361003/bella-singleton-aw16?ref=category_newest)
-[Ultimate Pool Guy - You Tube Creator](https://www.kickstarter.com/projects/445918479/ultimate-pool-guy-you-tube-creator?ref=category_newest)
-[[  New Collection Launch  ] SISTERS by Designer Kate Hewko](https://www.kickstarter.com/projects/6219619/new-collection-launch-sisters-by-designer-kate-hew?ref=category_newest)
-[Dea Della Swimwear](https://www.kickstarter.com/projects/1445209950/dea-della-swimwear?ref=category_newest)
-[Changing the way fashion is viewed through creativity & tech](https://www.kickstarter.com/projects/1532309477/changing-the-way-fashion-is-viewed-through-creativ?ref=category_newest)
-[Latchkeys: The Animated Short](https://www.kickstarter.com/projects/2026125569/latchkeys-the-animated-short?ref=category_newest)
-[Infinity Guys!](https://www.kickstarter.com/projects/sleepyfilms/infinity-guys?ref=category_newest)
-[One Nation Under God Short Film](https://www.kickstarter.com/projects/gabetullier/one-nation-under-god-short-film?ref=category_newest)
-[NYPD Internal Affairs bureau (IAB)(pilot) tv drama](https://www.kickstarter.com/projects/1273328683/nypd-internal-affairs-bureau-iabpilot-tv-drama?ref=category_newest)
-[Bears Discover Fire](https://www.kickstarter.com/projects/1204136890/bears-discover-fire?ref=category_newest)
-[Dark Room - A short film by Rony Patel](https://www.kickstarter.com/projects/754833257/dark-room-a-short-film-by-rony-patel?ref=category_newest)
-[American Follies Documentary Short Film](https://www.kickstarter.com/projects/pedaldriven/american-follies-documentary-short-film?ref=category_newest)
-[TUR DE CINE MEXICANO FEST](https://www.kickstarter.com/projects/706696455/tur-de-cine-mexicano-fest?ref=category_newest)
-[Fund A Film About God's Definition of True Love - Destiny PM](https://www.kickstarter.com/projects/1376607096/fund-a-film-about-gods-definition-of-true-love-des?ref=category_newest)
-[When it's not a regular Box, the film is Out of the Box](https://www.kickstarter.com/projects/1474555288/when-its-more-than-just-a-box-when-its-more-than-j?ref=category_newest)
-[\"Shabbat Dinner\" Short Film](https://www.kickstarter.com/projects/831749370/shabbat-dinner-short-film?ref=category_newest)
-[An Underground Restaurant: Local Food, Artisan Economics](https://www.kickstarter.com/projects/1570627973/an-underground-restaurant-local-food-artisan-produ?ref=category_newest)
-[\"Fully Functional\" Cookies by The Cookie Department](https://www.kickstarter.com/projects/849954593/fully-functional-cookies-by-the-cookie-department?ref=category_newest)
-[Austin Kefir Microbrewery](https://www.kickstarter.com/projects/1153828043/austin-kefir-microbrewery?ref=category_newest)
-[Mandala Chai Company](https://www.kickstarter.com/projects/mandalachaicompany/mandala-chai-company?ref=category_newest)
-[The Food Truck](https://www.kickstarter.com/projects/1825360349/the-food-truck?ref=category_newest)
-[SugarCoated Creations](https://www.kickstarter.com/projects/1533228992/sugarcoated-creations?ref=category_newest)
-[Cake shop and cafe](https://www.kickstarter.com/projects/625098751/cake-shop-and-cafe?ref=category_newest)
-[8-Bit Donuts: Gourmet Donuts, Coffee, and 80s Arcade Games!](https://www.kickstarter.com/projects/theguildhall/8-bit-donuts-gourmet-donuts-coffee-and-80s-arcade?ref=category_newest)
-[Klecks](https://www.kickstarter.com/projects/1692512578/klecks?ref=category_newest)
-[Rival Threads : Last Class Heroes - The Final Push](https://www.kickstarter.com/projects/kontrabida/rival-threads-last-class-heroes-the-final-push?ref=category_newest)
-[Relentless:  The Zombie Game That's Back From the Dead](https://www.kickstarter.com/projects/1360136763/relentless-the-zombie-game-thats-back-from-the-dea?ref=category_newest)
-[Dynasty Playing Cards by Brendan Hong](https://www.kickstarter.com/projects/526480055/dynasty-playing-cards-by-brendan-hong?ref=category_newest)
-[Mineral Cities](https://www.kickstarter.com/projects/garethjenkins/mineral-cities?ref=category_newest)
-[Rosie's Overcomer EP](https://www.kickstarter.com/projects/1820654456/rosies-overcomer-ep?ref=category_newest)
-['Untitled' Limited Edition Vinyl Pressing](https://www.kickstarter.com/projects/adamsantoya/untitled-limited-edition-vinyl-pressing?ref=category_newest)
-[Bring Contemporary Music to Greeley!](https://www.kickstarter.com/projects/1658010394/bring-contemporary-music-to-greeley?ref=category_newest)
-[PAK performs at Hagenfesten 2010. Transport us from Brooklyn to Dala-Folda, Sweden](https://www.kickstarter.com/projects/870277295/pak-performs-at-hagenfesten-2010-transport-us-from?ref=category_newest)
-[Lantern North American Tour 2011](https://www.kickstarter.com/projects/1999856974/lantern-north-american-tour-2011?ref=category_newest)
-[THE JOYFUL SOUND OF AFRICAN ISLAND-LIFE](https://www.kickstarter.com/projects/850323764/the-joyful-sound-of-african-island-life?ref=category_newest)
-[Con Artists: The Art of the Convention Sketch](https://www.kickstarter.com/projects/618027284/con-artists-the-art-of-the-convention-sketch?ref=category_newest)
-[New England Libraries: A Photographic Journey](https://www.kickstarter.com/projects/1625101981/new-england-libraries-a-photographic-journey?ref=category_newest)
-[The Charmed Realm; English language edition.](https://www.kickstarter.com/projects/paulkidby/the-charmed-realm-english-language-edition?ref=category_newest)
-[Shakespeare's Ensemble: Creative Ownership Book](https://www.kickstarter.com/projects/creativelyindie/shakespeares-ensemble-creative-ownership-book?ref=category_newest)
-[A World Within Worlds - CYO Adventure](https://www.kickstarter.com/projects/503777936/a-world-within-worlds-cyo-adventure?ref=category_newest)
-[Oneiric Weeds: Listening to Leonard Cohen](https://www.kickstarter.com/projects/548753241/oneiric-weeds-listening-to-leonard-cohen?ref=category_newest)
-[PicChain Social App](https://www.kickstarter.com/projects/heathfogelman/picchain-social-app?ref=category_newest)
-[My Dinosaur Sat on My Shitake: Book for Children Ages 6-8](https://www.kickstarter.com/projects/bkfarmyards/my-dinosaur-sat-on-my-shitake-book-for-children-ag?ref=category_newest)
-[I'm Simply a Dad Media](https://www.kickstarter.com/projects/1862079736/the-happy-healthy-family-podcast?ref=category_newest)
-[The Kinetic Series](https://www.kickstarter.com/projects/157843376/the-kinetic-series?ref=category_newest)
-[Knocksmith Magazine - The Exclusive Interactive Magazine](https://www.kickstarter.com/projects/434458382/knocksmith-magazine-the-exclusive-interactive-maga?ref=category_newest)
-[The Vasugo App...YOUR preferred way of communicating!](https://www.kickstarter.com/projects/vasugo/the-vasugo-appyour-preferred-way-of-communicating?ref=category_newest)
-[Zahnk: Connecting People to Local Small Business](https://www.kickstarter.com/projects/269240000/zahnk-connecting-people-to-local-small-business?ref=category_newest)
-[Obsolete Pinto Parts Reproduction](https://www.kickstarter.com/projects/1622727693/obsolete-pinto-parts-reproduction?ref=category_newest)
-[Mobichair](https://www.kickstarter.com/projects/1115864409/mobichair?ref=category_newest)
-[KiQ: The Personal Assistant with Personality Desk Gadget](https://www.kickstarter.com/projects/241263685/kiq-the-personal-assistant-with-personality-desk-g?ref=category_newest)
-[The Rápido Pro Pump Head For Bicycles](https://www.kickstarter.com/projects/1087940162/the-rapido-pro-pump-head-for-bicycles?ref=category_newest)
-[Cyber-Sentinelle, votre Protection Rapprochée sur Internet](https://www.kickstarter.com/projects/1351698181/cyber-sentinelle-votre-protection-rapprochee-sur-i?ref=category_newest)
-[East Boston Playhouse- Starting a Community Theater](https://www.kickstarter.com/projects/932360705/east-boston-playhouse-starting-a-community-theater?ref=category_newest)
-[Friends in Theater Company presents The Secret Garden](https://www.kickstarter.com/projects/954116815/friends-in-theater-company-presents-the-secret-gar?ref=category_newest)
-[Tarot of Brass and Steam: a Steampunk Deck](https://www.kickstarter.com/projects/brassandsteam/tarot-of-brass-and-steam-a-steampunk-deck?ref=category_newest)
-[Ink Sketches for a Buck!](https://www.kickstarter.com/projects/802865690/ink-sketches-for-a-buck?ref=category_newest)
-[Identity identifications | Beyond Bold and Beautiful](https://www.kickstarter.com/projects/1412873365/identity-identifications-beyond-bold-and-beautiful?ref=category_newest)
-[My First Signed & Numbered Limited Edition Print](https://www.kickstarter.com/projects/tomwilcoxdesign/the-fractal-art-of-tom-wilcox-steampunk-inspired?ref=category_newest)
-[Basketball Evolution Poster and T-Shirt](https://www.kickstarter.com/projects/dubly/basketball-evolution-poster?ref=category_newest)
-[Paper Profile - Silhouette Commissions](https://www.kickstarter.com/projects/486654385/paper-profile-silhouette-commissions?ref=category_newest)
-[RV Purse Museum - Where the Handbag Meets the Highway](https://www.kickstarter.com/projects/2005273693/rv-purse-museum-where-the-handbag-meets-the-highwa?ref=category_newest)
-[Interested in painting Mexican culture.](https://www.kickstarter.com/projects/1149735518/interested-in-painting-mexican-culture?ref=category_newest)
-[The Power of Flowers](https://www.kickstarter.com/projects/brandyh/the-power-of-flowers?ref=category_newest)
-[\"Tempted by the Tempest\"](https://www.kickstarter.com/projects/2114710304/tempted-by-the-tempest?ref=category_newest)
-[GRAVY PROJECT](https://www.kickstarter.com/projects/897902733/gravy-project?ref=category_newest)
-[Mosaic Selfie Sofa](https://www.kickstarter.com/projects/1380306711/mosaic-selfie-sofa?ref=category_newest)
-[Strange Sales](https://www.kickstarter.com/projects/kowabungacomics/strange-sales?ref=category_newest)
-[Heart and Brain Plush Toys](https://www.kickstarter.com/projects/theawkwardyeti/heart-and-brain-plush-toys?ref=category_newest)
-[Eternifest](https://www.kickstarter.com/projects/eternifest/eternifest?ref=category_newest)
-[Lady Bow Candles , bath bombs and soaps](https://www.kickstarter.com/projects/17458413/lady-bow-candles-bath-bombs-and-soaps?ref=category_newest)
-[Because Beautiful Art & Design Shop](https://www.kickstarter.com/projects/1678715338/because-beautiful-art-and-design-shop?ref=category_newest)
-[Epiphany onE Puck](https://www.kickstarter.com/projects/epiphanylabs/epiphany-one-puck?ref=category_newest)
-[Belt 13, The Minimalist Belt](https://www.kickstarter.com/projects/1075985498/belt-13-the-minimalist-belt?ref=category_newest)
-[Man-PACK \"Platinum\" Leather Collection (EDC bags for work)](https://www.kickstarter.com/projects/375407594/man-pack-platinum-leather-collection-edc-bags-for?ref=category_newest)
-[The Death of Spider-man Short Film](https://www.kickstarter.com/projects/1876874516/the-death-of-spider-man-short-film?ref=category_newest)
-[Shoes By Rey](https://www.kickstarter.com/projects/1810797114/shoes-by-rey?ref=category_newest)
-[KangooHug - The everyday pet carrier bag](https://www.kickstarter.com/projects/384672830/kangoohug-the-everyday-pet-carrier-bag?ref=category_newest)
-[HELP US TO DOUBLE THE GOAL FOR: TEACH ME HOW TO SEA](https://www.kickstarter.com/projects/1123555372/21-days-to-fund-production-teach-me-how-to-sea?ref=category_newest)
-[NattyBeads Bracelets](https://www.kickstarter.com/projects/1767821578/nattybeads-bracelets?ref=category_newest)
-[The Dancer and the Boxer - The movie](https://www.kickstarter.com/projects/1273469841/the-dancer-and-the-boxer-the-movie?ref=category_newest)
-[\"Popularity Killer\": Slasher Flick Killing for Your Help](https://www.kickstarter.com/projects/1050068098/popularity-killer?ref=category_newest)
-[Victoria & Albert](https://www.kickstarter.com/projects/dirtyrobber/victoria-and-albert-0?ref=category_newest)
-[Vlune](https://www.kickstarter.com/projects/993428855/vlune?ref=category_newest)
-[Mountain Grounds, A Fully Emersive Cafe](https://www.kickstarter.com/projects/2007596792/mountain-grounds-a-fully-emersive-cafe?ref=category_newest)
-[Florida's Best Chefs Fund Local Food Through Amazing Events](https://www.kickstarter.com/projects/1201891686/local-roots-artisan-food-hub-and-research-farm?ref=category_newest)
-[I would love to have a steak and a beautiful Craft Beer](https://www.kickstarter.com/projects/1230105173/i-would-love-to-have-a-steak-and-a-beautiful-craft?ref=category_newest)
-[Pachawasi Community - Peru - Healthy vegan and organic](https://www.kickstarter.com/projects/2111341469/pachawasi-community-peru-healthy-vegan-and-organic?ref=category_newest)
-[Punundrums™](https://www.kickstarter.com/projects/541304926/punundrums?ref=category_newest)
-[Six GMless Roleplaying Games by jim pinto (Post World Games)](https://www.kickstarter.com/projects/218255739/six-gmless-roleplaying-games-by-jim-pinto-post-wor?ref=category_newest)
-[FlyHappy.com](https://www.kickstarter.com/projects/1624314614/flyhappycom?ref=category_newest)
-[DreamRise.Co :: Women Disrupting the Entrepreneurship Ratio](https://www.kickstarter.com/projects/1306419303/dreamriseco-women-disrupting-the-entrepreneurship?ref=category_newest)
-[Spread French Art Song in the United States](https://www.kickstarter.com/projects/993340932/spread-french-art-song-in-the-united-states?ref=category_newest)
-[Project Battleground: a Soundtrack by Matt Campana](https://www.kickstarter.com/projects/mattcampana/project-battleground-a-soundtrack-by-matt-campana?ref=category_newest)
-[The future of the next Opera Star is in your hands!](https://www.kickstarter.com/projects/1212025507/the-future-of-the-next-opera-star-is-in-your-hands?ref=category_newest)
-[The String Quartet Experience Album](https://www.kickstarter.com/projects/1328983121/the-string-quartet-experience-album?ref=category_newest)
-[SHOW LOVE PODCAST](https://www.kickstarter.com/projects/801944427/show-love-podcast?ref=category_newest)
-[Sai Bravo's Debut Album](https://www.kickstarter.com/projects/331272982/sai-bravos-debut-album?ref=category_newest)
-[MUSIC FOR SMUT FLIX](https://www.kickstarter.com/projects/235839379/music-for-smut-flix?ref=category_newest)
-[Brad Standley & The Foxflies: Two Rockin' Music Videos](https://www.kickstarter.com/projects/thefoxflies/brad-standley-and-the-foxflies-two-rockin-music-vi?ref=category_newest)
-[Help Humanimals make a music video for 'Like You Like!'](https://www.kickstarter.com/projects/1315216034/help-humanimals-make-a-music-video-for-like-you-li?ref=category_newest)
-[Finishing Summer XO ’s “Hello World” EP](https://www.kickstarter.com/projects/summerxo/finishing-summer-xos-hello-world-ep?ref=category_newest)
-[Panoramic Cities](https://www.kickstarter.com/projects/chilactive/panoramic-cities?ref=category_newest)
-[New Album by Claire-Rose Barbier/ Sarah Llewellyn/ Tonal](https://www.kickstarter.com/projects/tonal/new-album-by-claire-rose-barbier-sarah-llewellyn-t?ref=category_newest)
-[Innovative Creations Magazine](https://www.kickstarter.com/projects/792913078/innovative-creations-magazine?ref=category_newest)
-[Expressions](https://www.kickstarter.com/projects/1254541032/expressions?ref=category_newest)
-[Wind and Water: Artist Book by Zhe Zhu](https://www.kickstarter.com/projects/366662468/wind-and-water-artist-book-by-zhe-zhu?ref=category_newest)
-[Streams Of Consciousness (Poetry) - Kingston University P](https://www.kickstarter.com/projects/1066791929/streams-of-consciousness-poetry-kingston-universit?ref=category_newest)
-[Grant Rising: First in a New Series of Civil War Map Books](https://www.kickstarter.com/projects/680099836/grant-rising-first-in-a-new-series-of-civil-war-ma?ref=category_newest)
+
+[Agitprop Inc. - A Multi-Album Campaign](https://www.kickstarter.com/projects/1013826473/agitprop-inc-a-multi-album-campaign?ref=category_newest)
+
+[My Heart, a Home - debut full length by ARCHWAY](https://www.kickstarter.com/projects/1697768054/my-heart-a-home-debut-full-length-by-archway?ref=category_newest)
+
+[Leila Love and The Noetics Recording Their First Album](https://www.kickstarter.com/projects/leilalove/leila-love-and-the-noetics-recording-their-first-a?ref=category_newest)
+
+[Castles & Clouds (fan-funded project)](https://www.kickstarter.com/projects/paulkrost/castles-and-clouds-fan-funded-project?ref=category_newest)
+
+[Music For Mom](https://www.kickstarter.com/projects/661609045/music-for-mom?ref=category_newest)
+
+[Gospel Music of Elvis](https://www.kickstarter.com/projects/1834938259/gospel-music-of-elvis?ref=category_newest)
+
+[Release of little bear's New Album!](https://www.kickstarter.com/projects/littlebear/release-of-little-bears-new-album?ref=category_newest)
+
+[The Pfeiffer Twins' debut album \"Nobody's Puppet\"](https://www.kickstarter.com/projects/thepfeiffertwins/the-pfeiffer-twins-debut-album-nobodys-puppet?ref=category_newest)
+
+[CoverWar's Second Chance](https://www.kickstarter.com/projects/436253052/coverwars-second-chance?ref=category_newest)
+
+[Rachel Lark's New Show & Concert Film, \"Studies Have Shown\"](https://www.kickstarter.com/projects/975062702/rachel-larks-new-show-and-concert-film-studies-hav?ref=category_newest)
+
+[CD Collaboration](https://www.kickstarter.com/projects/2098537860/cd-collaboration?ref=category_newest)
+
+[Irish Rose Photography](https://www.kickstarter.com/projects/1723852440/irish-rose-photography?ref=category_newest)
+
+[Funding for Album Budget](https://www.kickstarter.com/projects/326639840/funding-for-album-budget?ref=category_newest)
+
+[The Art of M J Forster: a limited edition retrospective book](https://www.kickstarter.com/projects/mjforster/the-art-of-m-j-forster-a-limited-edition-retrospec?ref=category_newest)
+
+[TATTOO COLORING BOOK #2](https://www.kickstarter.com/projects/1814463716/tattoo-coloring-book-2?ref=category_newest)
+
+[The Fun Adventures of Puff and Bean](https://www.kickstarter.com/projects/rwraymond/the-fun-adventures-of-puff-and-bean?ref=category_newest)
+
+[Run](https://www.kickstarter.com/projects/1009334448/run-7?ref=category_newest)
+
+[Condor One Screenplay](https://www.kickstarter.com/projects/111824304/condor-one-screenplay?ref=category_newest)
+
+[Jay Jay's World - Adding Smiles & Giving Hope](https://www.kickstarter.com/projects/rsgreene/jay-jays-world?ref=category_newest)
+
+[The Space Monster Anti-Survival Guide](https://www.kickstarter.com/projects/947334393/the-space-monster-anti-survival-guide?ref=category_newest)
+
+[Poetry: Publish paper books to E-Books](https://www.kickstarter.com/projects/1040661282/poetry-publish-paper-books-to-e-books?ref=category_newest)
+
+[The Clearances Project](https://www.kickstarter.com/projects/1818992049/the-clearances-project?ref=category_newest)
+
+[Golf Faces](https://www.kickstarter.com/projects/1226690090/golf-faces?ref=category_newest)
+
+['just a second'](https://www.kickstarter.com/projects/1256510263/just-a-second?ref=category_newest)
+
+[LitCircle: The Party App - Discover Parties Instantly](https://www.kickstarter.com/projects/thejordannelson/litcircle-the-party-app-discover-parties-instantly?ref=category_newest)
+
+[Romo - The Smartphone Robot for Everyone](https://www.kickstarter.com/projects/peterseid/romo-the-smartphone-robot-for-everyone?ref=category_newest)
+
+[Strong Female Character: A Musical Theater Song Cycle](https://www.kickstarter.com/projects/DepressionTheMusical/strong-female-character-musical-theater-pop-cultur?ref=category_newest)
+
+[Mauritius by Theresa Rebeck](https://www.kickstarter.com/projects/367454030/mauritius-by-theresa-rebeck?ref=category_newest)
+
+[Ancient Philippine script web translator](https://www.kickstarter.com/projects/baybayin/ancient-philippine-script-web-translator?ref=category_newest)
+
+[Maths'Fun, when learning Mathematics becomes a game!](https://www.kickstarter.com/projects/crazy-frenchy/mathsfun-when-learning-mathematics-becomes-a-game?ref=category_newest)
+
+[Paper Sky Theatre Summer Shakespeare](https://www.kickstarter.com/projects/1453171821/paper-sky-theatre-summer-shakespeare?ref=category_newest)
+
+[oSPITE Campaign Manager](https://www.kickstarter.com/projects/2144345703/ospite-campaign-manager?ref=category_newest)
+
+[Drew Digital Abstract Digital Art](https://www.kickstarter.com/projects/1704801236/drew-digital-abstract-digital-art?ref=category_newest)
+
+[Help Me Reach The Maker's Summit-A Small Business Conference](https://www.kickstarter.com/projects/1325826366/help-me-reach-the-makers-summit-a-small-business-c?ref=category_newest)
+
+[Open Theatre Project: Help Fund our New Works Festival!!](https://www.kickstarter.com/projects/opentheatreproject/open-theatre-project-help-fund-our-new-works-festi?ref=category_newest)
+
+[Bazarova Art](https://www.kickstarter.com/projects/bazarovart/bazarova-art?ref=category_newest)
+
+[FUND A MONKEY BOOK!](https://www.kickstarter.com/projects/1436540895/fund-a-monkey-book?ref=category_newest)
+
+[American graffiti artists go to Sderot to battle terror with art, beauty & unity.](https://www.kickstarter.com/projects/artists4israel/american-graffiti-artists-go-to-sderot-to-battle-t?ref=category_newest)
+
+[Social Dress St. Louis - Learning & Unlearning](https://www.kickstarter.com/projects/948096006/social-dress-st-louis-learning-and-unlearning?ref=category_newest)
+
+[Cyber Descent Volume One DVD Package](https://www.kickstarter.com/projects/1026191695/cyber-descent-volume-one-dvd-package?ref=category_newest)
+
+[Staccato #1](https://www.kickstarter.com/projects/868228283/staccato-1?ref=category_newest)
+
+[SALVAGERS The Wreck Raiders: Part 2](https://www.kickstarter.com/projects/535592388/salvagers-the-wreck-raiders-part-2?ref=category_newest)
+
+[Hot Georgia, Hot Glass! Part Deaux. A glass blowing studio.](https://www.kickstarter.com/projects/1933976620/hot-georgia-hot-glass-part-deaux-a-glass-blowing-s?ref=category_newest)
+
+[Holiday Stockings and other Christmas things :)](https://www.kickstarter.com/projects/572690994/holiday-stockings-and-other-christmas-things?ref=category_newest)
+
+[Handmade Pop-up Cards Providing Employment For the Disabled](https://www.kickstarter.com/projects/1857106266/handmade-pop-up-cards-providing-employment-for-the?ref=category_newest)
+
+[Brave the Storm - Aguantar La Tempestad](https://www.kickstarter.com/projects/728750649/brave-the-storm-aguantar-la-tempestad?ref=category_newest)
+
+[I am going to design clothing and make skateboards.](https://www.kickstarter.com/projects/1154907338/i-am-going-to-design-clothing-and-make-skateboards?ref=category_newest)
+
+[Sustainable Eco-Lodge and Wildlife Sanctuary in Cambodia](https://www.kickstarter.com/projects/630680345/a-sustainable-eco-lodge-and-wildlife-sanctuary-in?ref=category_newest)
+
+[RistBich... Simple boho \"flawed 2 perfection\"](https://www.kickstarter.com/projects/1039802587/ristbich-simple-boho-flawed-2-perfection?ref=category_newest)
+
+[The Shopper Bag](https://www.kickstarter.com/projects/1235610621/the-shopper-bag?ref=category_newest)
+
+[ViVAX: The best portable laptop protection system available](https://www.kickstarter.com/projects/mattiaventura/vivax-the-best-portable-laptop-protection-system-a?ref=category_newest)
+
+[Stubble & Co: The perfect everyday bag for men](https://www.kickstarter.com/projects/stubbleandco/stubble-and-co-the-perfect-everyday-bag-for-men?ref=category_newest)
+
+[Eis Life: for the love of ice cream](https://www.kickstarter.com/projects/lukeleighfield/eis-life-for-the-love-of-ice-cream?ref=category_newest)
+
+[Girl Lux - The Pocket Pantie™](https://www.kickstarter.com/projects/pocketpantie/the-pocket-pantietm?ref=category_newest)
+
+[The Art Of Life](https://www.kickstarter.com/projects/301227383/the-art-of-life?ref=category_newest)
+
+[Documenting the Los Angeles Burrito Project](https://www.kickstarter.com/projects/342134573/documenting-the-los-angeles-burrito-project?ref=category_newest)
+
+[STARCROSS - A SHORT FILM](https://www.kickstarter.com/projects/councilchild/starcross-a-short-film?ref=category_newest)
+
+[Cloud Catchers](https://www.kickstarter.com/projects/lucasmartell/cloud-catchers?ref=category_newest)
+
+[GINGERSQUATCH](https://www.kickstarter.com/projects/158179513/gingersquatch-0?ref=category_newest)
+
+[Stand the Gaff](https://www.kickstarter.com/projects/265158738/stand-the-gaff?ref=category_newest)
+
+[CURTAIN: indie horror feature ready for post-production!](https://www.kickstarter.com/projects/1252341942/curtain-indie-horror-feature-ready-for-post-produc?ref=category_newest)
+
+[We Just Want to Play](https://www.kickstarter.com/projects/1956122713/we-just-want-to-play?ref=category_newest)
+
+[The Hunters](https://www.kickstarter.com/projects/643368175/the-hunters?ref=category_newest)
+
+[Pieces of Time](https://www.kickstarter.com/projects/772434152/pieces-of-time?ref=category_newest)
+
+[The Culture of Wine - La Culture du Vin - Filming Season 1](https://www.kickstarter.com/projects/945087791/la-culture-du-vin-filming-season-1-completion?ref=category_newest)
+
+[Vangola's 15th](https://www.kickstarter.com/projects/1702856737/vongolas-15th?ref=category_newest)
+
+[Third Down - Some secrets aren't worth keeping](https://www.kickstarter.com/projects/1870885872/armed-robbery-help-me-fund-my-senior-thesis-film?ref=category_newest)
+
+[Weird and Wonderful Pets - inspiring passion for nature](https://www.kickstarter.com/projects/1352171326/weird-and-wonderful-pets-inspiring-passion-for-nat?ref=category_newest)
+
+[JUST PLAIN DEAD - a campy film noir](https://www.kickstarter.com/projects/1676153621/just-plain-dead-a-campy-film-noir?ref=category_newest)
+
+[Solace: Episode 1](https://www.kickstarter.com/projects/2095295781/solace-episode-1?ref=category_newest)
+
+[Big Hunt, A really big hunt.](https://www.kickstarter.com/projects/757538563/big-hunt-a-really-big-hunt?ref=category_newest)
+
+[The Farmers Friends - Educational Food & Garden Game](https://www.kickstarter.com/projects/1459362422/the-farmers-friends-educational-food-and-garden-ga?ref=category_newest)
+
+[Hustling Series, Season Two](https://www.kickstarter.com/projects/hustlingseries/hustling-an-original-web-series-the-road-to-season?ref=category_newest)
+
+[Friendly Brewery - Medieval Castle Brewery Restoration](https://www.kickstarter.com/projects/364659665/friendly-brewery-medieval-castle-brewery-restorati?ref=category_newest)
+
+[Mom's Extra Special Pancakes](https://www.kickstarter.com/projects/1182306310/moms-extra-special-pancakes?ref=category_newest)
+
+[The Oreo Milkshake](https://www.kickstarter.com/projects/831104940/the-oreo-milkshake?ref=category_newest)
+
+[Making Every Genre Delicious with Cake, Chocolate & Sweets](https://www.kickstarter.com/projects/801935068/making-every-genre-delicious-with-cake-chocolate-a?ref=category_newest)
+
+[Livestream Talkback Pirate Radio](https://www.kickstarter.com/projects/475630787/livestream-talkback-pirate-radio?ref=category_newest)
+
+[Bash N Dash](https://www.kickstarter.com/projects/1233671146/bash-n-dash?ref=category_newest)
+
+[Mobile environmental game to teach kids about overfishing](https://www.kickstarter.com/projects/1931448839/mobile-environmental-game-to-teach-kids-about-over?ref=category_newest)
+
+[Crossword Puzzles!](https://www.kickstarter.com/projects/ericberlin/crossword-puzzles?ref=category_newest)
+
+[Orcania](https://www.kickstarter.com/projects/969201487/orcania?ref=category_newest)
+
+[Illinois Energy Justice](https://www.kickstarter.com/projects/971057960/illinois-energy-justice?ref=category_newest)
+
+[Bunghole Fighters](https://www.kickstarter.com/projects/827806287/bunghole-fighters?ref=category_newest)
+
+[Kelvin Cummings debut Country Music Album](https://www.kickstarter.com/projects/kelvincummingsmusic/kelvin-cummings-debut-country-music-album?ref=category_newest)
+
+[Help Us Fund the Final Concert of our 2015-2016 Season](https://www.kickstarter.com/projects/lrmc-rutter-randall/help-us-fund-the-final-concert-of-our-2015-2016-se?ref=category_newest)
+
+[ErasedState Debut Album Trustate](https://www.kickstarter.com/projects/1906144638/erasedstate-debut-album-trustate?ref=category_newest)
+
+[Living Light's Second Album \"Tales from the Karman Line\"](https://www.kickstarter.com/projects/livinglight/living-lights-second-album-tales-from-the-karman-l?ref=category_newest)
+
+[WINGS FOR \"GREAT BIG SKY\"!](https://www.kickstarter.com/projects/792931417/wings-for-great-big-sky?ref=category_newest)
+
+[Get Lost In The Music - First EDM Album & Home Music Studio](https://www.kickstarter.com/projects/220314142/get-lost-in-the-music-first-edm-album?ref=category_newest)
+
+[Beat Skii B-Music Video Bash](https://www.kickstarter.com/projects/1282522049/beat-skii-b-music-video-bash?ref=category_newest)
+
+[FREEDOM PROJECT](https://www.kickstarter.com/projects/227867156/freedom-project?ref=category_newest)
+
+[Music artist in need of studio time and jumpstart career](https://www.kickstarter.com/projects/joebrashear/music-artist-in-need-of-studio-time-and-jumpstart?ref=category_newest)
+
+[The Bellwether Syndicate • New Album Project](https://www.kickstarter.com/projects/303880739/the-bellwether-syndicate-new-album-project?ref=category_newest)
+
+[Horse to Water Witness Marks](https://www.kickstarter.com/projects/1065726199/horse-to-water-witness-marks?ref=category_newest)
+
+[Opera SmackDown - CatieLeigh Laszweski AKA \"Asylum\"](https://www.kickstarter.com/projects/2017293790/opera-smackdown-catieleigh-laszweski-aka-asylum?ref=category_newest)
+
+[CY:AM](https://www.kickstarter.com/projects/1834345587/cy-am?ref=category_newest)
+
+[FLY AWAY by: Chachi Fayze](https://www.kickstarter.com/projects/2134484228/fly-away-by-chachi-fayze?ref=category_newest)
+
+[Djake plays Django](https://www.kickstarter.com/projects/1468329360/djake-plays-django?ref=category_newest)
+
+[IRONCORE Merchandise help fund](https://www.kickstarter.com/projects/1900858067/ironcore-merch-fund?ref=category_newest)
+
+[New Scott Brookman album Needs Mastering and Manufacturing](https://www.kickstarter.com/projects/1660476214/new-scott-brookman-album-needs-mastering-and-manuf?ref=category_newest)
+
+[MoeTar East Coast to Mid-West Tour](https://www.kickstarter.com/projects/moetar/moetar-east-coast-to-mid-west-tour?ref=category_newest)
+
+[Singin' A New Song With Susan](https://www.kickstarter.com/projects/765399619/singin-a-new-song-with-susan?ref=category_newest)
+
+[Wrath and Ruin: A Chilling Anthology](https://www.kickstarter.com/projects/462163640/wrath-and-ruin-a-chilling-anthology?ref=category_newest)
+
+[Please Help me bring The Cherry Valley Chronicles to life.](https://www.kickstarter.com/projects/451817874/please-help-me-bring-the-cherry-valley-chronicles?ref=category_newest)
+
+[Money is Power! Mastering the Stock Market](https://www.kickstarter.com/projects/1268397157/money-is-power-mastering-the-stock-market?ref=category_newest)
+
+[Spots the Tortoise Children's Book Series written by a Child](https://www.kickstarter.com/projects/1590111604/spots-the-tortoise-childrens-book-series-written-b?ref=category_newest)
+
+[The Other Half of the Sky](https://www.kickstarter.com/projects/1334289829/the-other-half-of-the-sky?ref=category_newest)
+
+[Hattie Hooper's Helping Hands](https://www.kickstarter.com/projects/785769331/hattie-hoopers-helping-hands?ref=category_newest)
+
+[Ramadhan Reflections: Spirituality through Contemplation](https://www.kickstarter.com/projects/1357654719/ramadhan-reflections-spirituality-through-contempl?ref=category_newest)
+
+[The Book](https://www.kickstarter.com/projects/thebook/the-book?ref=category_newest)
+
+[NORMAL: Psychological Thriller by K.M. Kinsley in Paperback](https://www.kickstarter.com/projects/1634760022/normal-fast-paced-psychological-thriller-series?ref=category_newest)
+
 [Publishing \"The Runaway Mommy\"](https://www.kickstarter.com/projects/2009563623/publishing-the-runaway-mommy?ref=category_newest)
-[Between A to B](https://www.kickstarter.com/projects/113666163/between-a-to-b?ref=category_newest)
-[Prii One - Gesture and Voice controlled switch](https://www.kickstarter.com/projects/1326410121/prii-one-gesture-and-voice-controlled-switch?ref=category_newest)
-[NextRnR](https://www.kickstarter.com/projects/nextrnr/nextrnr?ref=category_newest)
-[Doodle-Dee-Doo A Tuney Looney Cartoon](https://www.kickstarter.com/projects/doodledeedoo/doodle-dee-doo-a-tuney-looney-cartoon?ref=category_newest)
-[Slangism:  A Workshop and Exhibition Series](https://www.kickstarter.com/projects/slangism/slangism-a-workshop-and-exhibition-series?ref=category_newest)
-[Quickest Flip 2013 Calendar Poster and Music Compilation](https://www.kickstarter.com/projects/1522437437/quickest-flip-2013-calendar-poster-and-music-compi?ref=category_newest)
-[Embarazada y descalza](https://www.kickstarter.com/projects/1398590849/embarazada-y-descalza?ref=category_newest)
-[AudioForge Poppy Project](https://www.kickstarter.com/projects/711912969/audioforge-poppy-project?ref=category_newest)
-[TMH Comics Presents: True Man Of Honor #1](https://www.kickstarter.com/projects/1152994205/launching-tmh-comics?ref=category_newest)
-[Outerlands Parklet](https://www.kickstarter.com/projects/80192651/outerlands-parklet?ref=category_newest)
-[Jamison Ernest Bouncing Cars Sculptures](https://www.kickstarter.com/projects/1038279432/jamison-ernest-bouncing-cars-sculptures?ref=category_newest)
-[Crafts by Moms Angels](https://www.kickstarter.com/projects/19760317/crafts-by-moms-angels?ref=category_newest)
-[Le Train Bleu](https://www.kickstarter.com/projects/2000822834/le-train-bleu?ref=category_newest)
-[The Economics of Digital Comics](https://www.kickstarter.com/projects/1524990961/the-economics-of-digital-comics?ref=category_newest)
-[Bunny Rabbit Hutch's](https://www.kickstarter.com/projects/1040170671/bunny-rabbit-hutchs?ref=category_newest)
-[What on Earth is Design?](https://www.kickstarter.com/projects/designdnagame/what-on-earth-is-design?ref=category_newest)
-[Velcro Coffee Cup Patch](https://www.kickstarter.com/projects/1241413108/coffee-patch?ref=category_newest)
-[The Brick Oven Box Project](https://www.kickstarter.com/projects/1963477916/the-brick-oven-box-project?ref=category_newest)
-[The Chameleon - Beyond Basic Pants](https://www.kickstarter.com/projects/mamquam/the-chameleon-beyond-basic-pants?ref=category_newest)
-[Egg Salad League T-Shirts](https://www.kickstarter.com/projects/179887581/egg-salad-league-t-shirts?ref=category_newest)
-[Just Pretend Play Rental Trunk](https://www.kickstarter.com/projects/1291724684/just-pretend-play-rental-trunk?ref=category_newest)
-[The Tongue and the Mist - EXPERIMENTAL VIDEO INSTALLATION](https://www.kickstarter.com/projects/115225236/the-tongue-and-the-mist-experimental-video-install?ref=category_newest)
-[Live From the Set](https://www.kickstarter.com/projects/129162159/live-from-the-set?ref=category_newest)
-[Dreams My Master](https://www.kickstarter.com/projects/1850053528/dreams-my-master?ref=category_newest)
-[TEN THOUSAND HOURS](https://www.kickstarter.com/projects/150022004/ten-thousand-hours?ref=category_newest)
-[R'ha 2 - The continuation of the sci-fi epic](https://www.kickstarter.com/projects/730138406/rha-feature-film-bring-the-sci-fi-epic-to-the-scre?ref=category_newest)
-[Gerry Anderson's Firestorm - Filmed in Ultramarionation](https://www.kickstarter.com/projects/1717674777/gerry-andersons-firestorm-filmed-in-ultramarionati?ref=category_newest)
-[Collector- A Short Film](https://www.kickstarter.com/projects/dkfilmworks/collector-the-film?ref=category_newest)
-[The Border Festival Circuit](https://www.kickstarter.com/projects/1839536679/the-border-festival-circuit?ref=category_newest)
-[The Drunk Lonely Wives Book Club](https://www.kickstarter.com/projects/drunklonelywives/the-drunk-lonely-wives-book-club?ref=category_newest)
-[Mrs. C's House Foods](https://www.kickstarter.com/projects/1031748058/mrs-cs-house-foods?ref=category_newest)
-[Gathering Place Brewing Company](https://www.kickstarter.com/projects/1302642503/gathering-place-brewing-company?ref=category_newest)
-[All bar - 100% TOTAL MEAL REPLACEMENT](https://www.kickstarter.com/projects/allbar/all-bar-100-total-meal-replacement?ref=category_newest)
-[The Gourmet Pesto Extravaganza](https://www.kickstarter.com/projects/1784858180/the-gourmet-pesto-extravaganza?ref=category_newest)
-[Dare to Pair knowledge matching game](https://www.kickstarter.com/projects/1597653132/dare-to-pair-knowledge-matching-game?ref=category_newest)
-[My Story Dice](https://www.kickstarter.com/projects/978467122/my-story-dice?ref=category_newest)
-[Zoogi Roll](https://www.kickstarter.com/projects/1522743927/zoogi-roll?ref=category_newest)
-[Gina Forsyth is finishing her new CD, \"Promised Land\"](https://www.kickstarter.com/projects/406142094/gina-forsyth-is-finishing-her-new-cd-promised-land?ref=category_newest)
-[Salmon Run -- Prepare for the race of a (fish's) lifetime!](https://www.kickstarter.com/projects/167427101/salmon-run-prepare-for-the-race-of-a-fishs-lifetim?ref=category_newest)
-[Altius Quartet's Debut Album(s)](https://www.kickstarter.com/projects/454686226/altius-quartets-debut-albums?ref=category_newest)
-[GHOSTLIGHT TO DEUTSCHLAND!](https://www.kickstarter.com/projects/ghostlight/ghostlight-to-deutschland?ref=category_newest)
-[What's In A Name?  Concert & CD](https://www.kickstarter.com/projects/1906086335/whats-in-a-name-concert-and-cd?ref=category_newest)
-[Big Joe Walker Releases Debut Texas Country Album!](https://www.kickstarter.com/projects/525957666/big-joe-walker-releases-debut-texas-country-album?ref=category_newest)
-[Tracey Browne & Raevennan Husbandes - debut record!](https://www.kickstarter.com/projects/979672460/tracey-browne-and-raevennan-husbandes-debut-record?ref=category_newest)
-[Nagano City Street Band - Physical CD release](https://www.kickstarter.com/projects/32719214/nagano-city-street-band-physical-cd-release?ref=category_newest)
-[Hymns: Fresh Cut Flowers || Aaron Strumpel](https://www.kickstarter.com/projects/2084116595/hymns-fresh-cut-flowers?ref=category_newest)
-[coLABoratory - Experimental New Orchestra Music](https://www.kickstarter.com/projects/1860065619/colaboratory-experimental-new-orchestra-music?ref=category_newest)
-[Uzi & Ari record and choreograph the new album + stage production, \"Are You Haunted?\"](https://www.kickstarter.com/projects/184965176/uzi-and-ari-record-and-choreograph-the-new-album-s?ref=category_newest)
-[Paper Hill Casket Company - \"Undertow\"](https://www.kickstarter.com/projects/paperhillcasketco/paper-hill-casket-company-undertow?ref=category_newest)
-[\"Potent Product\" Promotion Tour. Supporting The People.](https://www.kickstarter.com/projects/68540041/potent-product-promotion-tour-supporting-the-peopl?ref=category_newest)
-[Nothin' To Lose Entertainment Album & Album Release Concert](https://www.kickstarter.com/projects/atiq/nothin-to-lose-entertainment-album-and-album-relea?ref=category_newest)
-[We Are All Born Lucky CD: Mix, Master, & Make 'em!](https://www.kickstarter.com/projects/946766591/we-are-all-born-lucky-cd-mix-master-and-make-em?ref=category_newest)
-[The BLB's 2nd album: The War On Sobriety](https://www.kickstarter.com/projects/1936834181/the-blbs-2nd-album-the-war-on-sobriety?ref=category_newest)
-[PRE ORDER Reno Divorce Digital CD \"Stuck On You\" $15 or more](https://www.kickstarter.com/projects/1114852018/reno-divorce-new-full-length-stuck-on-you?ref=category_newest)
-[Perpetual Mockery 12\" PLP](https://www.kickstarter.com/projects/1347213249/perpetual-mockery-12-plp?ref=category_newest)
-[Najasism Album & Tour Project](https://www.kickstarter.com/projects/1904223253/najasism-album-and-tour-project?ref=category_newest)
-[American Midnight by The Tressels](https://www.kickstarter.com/projects/1444642862/american-midnight-by-the-tressels?ref=category_newest)
-[Andrew Block's Debut Album](https://www.kickstarter.com/projects/2140899418/andrew-blocks-debut-album?ref=category_newest)
-[Amoris Orbita, an album by Suns of Orpheus](https://www.kickstarter.com/projects/985131105/amoris-orbita-an-album-by-suns-of-orpheus?ref=category_newest)
-[A Year Of Childhood Fairytales](https://www.kickstarter.com/projects/154949659/a-year-of-childhood-fairytales?ref=category_newest)
-[Visual Music - The Book meets the CD](https://www.kickstarter.com/projects/882796949/visual-music-the-book-meets-the-cd?ref=category_newest)
-[Feral Magazine](https://www.kickstarter.com/projects/557488340/feral-magazine?ref=category_newest)
-[Sun Kisses, Moon Hugs...A Children's Picture Book](https://www.kickstarter.com/projects/1678479880/sun-kisses-moon-hugsa-childrens-picture-book?ref=category_newest)
-[3, 2, 1 PRINT !](https://www.kickstarter.com/projects/1783609646/3-2-1-print?ref=category_newest)
-[WRITING A BOOK TO CELEBRATE  AND PRESERVE AMERICA'S OLDEST MOST HISTORIC RESTAURANTS!](https://www.kickstarter.com/projects/944395582/writing-a-book-to-celebrate-and-preserve-americas?ref=category_newest)
-[Launch Our Book: Restart (A Thirty Day Devotional)](https://www.kickstarter.com/projects/1052523487/launch-our-book-restart-a-thirty-day-devotional?ref=category_newest)
-[Sport X1 stabilizer for action camera & smartphone](https://www.kickstarter.com/projects/sportx1/sport-x1-stabilizer-for-action-camera-and-smartpho?ref=category_newest)
-[An APP to teach & plan your financial future](https://www.kickstarter.com/projects/498641588/an-app-to-teach-and-plan-your-financial-future?ref=category_newest)
-[Bedside Smart stand](https://www.kickstarter.com/projects/666166168/bedside-smart-stand?ref=category_newest)
-[RubrixAID: Automated First-Aid Kits](https://www.kickstarter.com/projects/rubrixaid/rubrixaid-automated-first-aid-kits?ref=category_newest)
-[iRBeacon - smarter remote for a smarter home](https://www.kickstarter.com/projects/1457666047/irbeacon-smarter-remote-for-a-smarter-home?ref=category_newest)
-[RateThatSpace.com](https://www.kickstarter.com/projects/1038577898/ratethatspacecom?ref=category_newest)
-[DEAD ZONE 805! Zombie Apocalypse Halloween Haunt Ventura, CA](https://www.kickstarter.com/projects/nelsoncooper/dead-zone-805-zombie-apocalypse-halloween-haunt-ve?ref=category_newest)
-[Nothing Changes](https://www.kickstarter.com/projects/2081429275/nothing-changes?ref=category_newest)
-[Dickhead](https://www.kickstarter.com/projects/1734435611/dickhead?ref=category_newest)
-[MFA Thesis Show - Embodiment](https://www.kickstarter.com/projects/annle/mfa-thesis-show-embodiment?ref=category_newest)
-[Be in a new paper-cut out music video w/ the band in Heaven](https://www.kickstarter.com/projects/thebandinheaven/be-in-a-new-paper-cut-out-music-video-w-the-band-i?ref=category_newest)
-[Community Palette Presents: Timeless Fashion](https://www.kickstarter.com/projects/607111549/community-palette-presents-timeless-fashion?ref=category_newest)
-[The Monaco PV  |  Burning Man 2015](https://www.kickstarter.com/projects/541014514/the-monaco-pv-burning-man-2015?ref=category_newest)
-[\"Art in Motion\"- Cape Cod's Carousel of Light](https://www.kickstarter.com/projects/carouseloflight/art-in-motion-cape-cods-carousel-of-light?ref=category_newest)
-[Shogi Ninja (Shogi Ninja Kei and Shinobu)](https://www.kickstarter.com/projects/1881746921/shogi-ninja-shogi-ninja-kei-and-shinobu?ref=category_newest)
-[Nerdy Candles: For Nerds](https://www.kickstarter.com/projects/tomlubanovic/nerdy-candles-for-nerds?ref=category_newest)
-[Renewable Soy + American Made Candles = LOVE](https://www.kickstarter.com/projects/ruberrypie/renewable-soy-american-made-candles-love?ref=category_newest)
-[The Zeppelin - Burning Man 2013](https://www.kickstarter.com/projects/zeppelin/the-zeppelin-burning-man-2013?ref=category_newest)
-[Fidgetizer: Turn your phone into a spinner](https://www.kickstarter.com/projects/1293549062/fidgetizer-turn-your-phone-into-a-spinner?ref=category_newest)
-[The Sutro Mission Bicycle: Designed for City Riding](https://www.kickstarter.com/projects/1804944614/the-sutro-mission-bicycle-designed-for-city-riding?ref=category_newest)
-[CelGo: Flexible Hands-Free Cell Phone Holder For Your Car](https://www.kickstarter.com/projects/celgo/celgo-flexible-hands-free-cell-phone-holder-for-yo?ref=category_newest)
-[Kayu 'EARTH MMXV' Bamboo Wristwatch](https://www.kickstarter.com/projects/291630885/kayu-earth-mmxv-bamboo-wristwatch?ref=category_newest)
-[4Love&Wore The Original California Tee Shirt](https://www.kickstarter.com/projects/4loveandwore/4loveandwore-the-original-california-tee-shirt?ref=category_newest)
-[Happy Sweatpants - Period Proof Sweatpants](https://www.kickstarter.com/projects/saphirahowell/happy-sweatpants?ref=category_newest)
-[The answer to discreet and fashionable breastfeeding](https://www.kickstarter.com/projects/945952960/the-answer-to-discreet-and-fashionable-breastfeedi?ref=category_newest)
-[Animation Portfolio](https://www.kickstarter.com/projects/1015641053/animation-portfolio?ref=category_newest)
-[You Are God - a film about creating reality](https://www.kickstarter.com/projects/ianmidgley/you-are-god-a-film-about-creating-reality?ref=category_newest)
-[Woodstock: In Search of Utopia](https://www.kickstarter.com/projects/172613982/woodstock-in-search-of-utopia?ref=category_newest)
-[Your Appraisal & Necessary Evils](https://www.kickstarter.com/projects/1268497136/your-appraisal-and-necessary-evils?ref=category_newest)
-['Lab Rats' Short Horror Film](https://www.kickstarter.com/projects/1404981016/lab-rats-short-horror-film?ref=category_newest)
-[Sugarland](https://www.kickstarter.com/projects/1384878948/sugarland?ref=category_newest)
-[Make-Believe](https://www.kickstarter.com/projects/994303847/make-believe-1?ref=category_newest)
-[Jokes on You Presents our debut film \"Shredded\"](https://www.kickstarter.com/projects/1708726943/jokes-on-you-presents-our-debut-film-shredded?ref=category_newest)
-[Érase Una Vez Un Patriota](https://www.kickstarter.com/projects/1895257281/erase-una-vez-un-patriota?ref=category_newest)
-[LGBTQ Homeless Youth Leadership Project](https://www.kickstarter.com/projects/1909786228/lgbtq-homeless-youth-leadership-project?ref=category_newest)
-[Who is Professor Algernon?](https://www.kickstarter.com/projects/professoralgernon/who-is-professor-algernon?ref=category_newest)
-[Stykemain Orchards](https://www.kickstarter.com/projects/739164828/stykemain-orchards?ref=category_newest)
-[Valentine Road - Pilot Episode](https://www.kickstarter.com/projects/valentineroad/valentine-road-pilot-episode?ref=category_newest)
-[Sweet Bakin Bakery- Food Truck](https://www.kickstarter.com/projects/1104261549/sweet-bakin-bakery-food-truck?ref=category_newest)
-[A cafe filled with love and good beverages. Coffee, and tea](https://www.kickstarter.com/projects/1478068027/a-cafe-filled-with-love-and-good-beverages-coffee?ref=category_newest)
-[A Drink Sorority Girls Will Love](https://www.kickstarter.com/projects/167934672/a-drink-sorority-girls-will-love?ref=category_newest)
-[Flour and Salt Bakery](https://www.kickstarter.com/projects/184138736/flour-and-salt-bakery?ref=category_newest)
-[Purple Orchid Boutique and High Tea House](https://www.kickstarter.com/projects/714659814/purple-orchid-boutique-and-high-tea-house?ref=category_newest)
-[Richards Too Good Seattle BBQ Sauce](https://www.kickstarter.com/projects/1469764962/richards-too-good-seattle-bbq-sauce?ref=category_newest)
-[Mid Evil Town](https://www.kickstarter.com/projects/45951703/mid-evil-town?ref=category_newest)
-[Startup Jargon Flashcards](https://www.kickstarter.com/projects/rochellekopp/startup-jargon-flashcards?ref=category_newest)
-[American Bibliodeck, The Wonderful Wizard of Oz Edition](https://www.kickstarter.com/projects/illogicalassociates/american-bibliodeck-the-wonderful-wizard-of-oz-edi?ref=category_newest)
-[A2 BATTLEPAD by Squarehex](https://www.kickstarter.com/projects/1730454032/a2-battlepad-by-squarehex?ref=category_newest)
-[Blvd.Talk](https://www.kickstarter.com/projects/1089591525/blvdtalk?ref=category_newest)
-[\"Every Wish\" solo CD](https://www.kickstarter.com/projects/1381829906/every-wish-solo-cd?ref=category_newest)
-[Travis Ehrenstrom's New Album](https://www.kickstarter.com/projects/1537949535/travis-ehrenstroms-new-album?ref=category_newest)
-[Jamie Burke's EP](https://www.kickstarter.com/projects/1577176663/jamie-burkes-ep?ref=category_newest)
-[The Seshen's Debut Album Release](https://www.kickstarter.com/projects/theseshen/the-seshens-debut-album-release?ref=category_newest)
-[City of Gray](https://www.kickstarter.com/projects/983470214/city-of-gray?ref=category_newest)
-[Punk Rock Preschool](https://www.kickstarter.com/projects/645782939/punk-rock-preschool?ref=category_newest)
-[Sextile Tour Support](https://www.kickstarter.com/projects/1227873275/sextile-tour-support?ref=category_newest)
-[Mary Bee - Starting a New Album!](https://www.kickstarter.com/projects/1413843212/mary-bee-starting-a-new-album?ref=category_newest)
-[Help The 3 Heads record their new album!](https://www.kickstarter.com/projects/the3heads/help-the-3-heads-record-their-new-album?ref=category_newest)
-[Captain America, a photography book by Jamie Robinson](https://www.kickstarter.com/projects/802446335/captain-america-a-photography-book-by-jamie-robins?ref=category_newest)
-[L'Eveil (The awakening) First solo album of Merime](https://www.kickstarter.com/projects/17786722/leveil-the-awakening-first-solo-album-of-merime?ref=category_newest)
-[forgotten souldiers](https://www.kickstarter.com/projects/448942055/forgotten-souldiers?ref=category_newest)
-[Faithful Fairy Friends](https://www.kickstarter.com/projects/terranempire/faithful-fairy-friends?ref=category_newest)
-[Small Pleasures](https://www.kickstarter.com/projects/abigailmarguerite/small-pleasures?ref=category_newest)
-[Second installment of the Bear Whitman book series!](https://www.kickstarter.com/projects/bwep33/second-installment-of-the-bear-whitman-book-series?ref=category_newest)
-[The Stars Threw Down Their Spears](https://www.kickstarter.com/projects/287532527/the-stars-threw-down-their-spears?ref=category_newest)
-[Minority of Mind--a personal account of schizophrenia](https://www.kickstarter.com/projects/583123892/minorty-of-mind-a-personal-account-of-schizophreni?ref=category_newest)
-[Incoherent Ramblings of the Coherent](https://www.kickstarter.com/projects/1659532831/incoherent-ramblings-of-the-coherent?ref=category_newest)
-[Axiom: A Superhero Novel That Sees the Hope For Humanity](https://www.kickstarter.com/projects/1548322115/axiom-a-novel-w-a-new-take-on-the-modern-superhero?ref=category_newest)
-[Mary Hoffman's StoryApp Tour: In the Footsteps of Giants](https://www.kickstarter.com/projects/2091425754/a-new-storytelling-form-brings-history-to-life?ref=category_newest)
-[The \"Mano-Matic\" 3D printed Bionic Hand](https://www.kickstarter.com/projects/354249880/the-mano-matic-3d-printed-bionic-hand?ref=category_newest)
-[Jeffrie: Protect your Packages w/ the Smartest Mailbox](https://www.kickstarter.com/projects/1644119687/jeffrie-protect-your-packages-w-the-smartest-mailb?ref=category_newest)
-[The Agile Deck](https://www.kickstarter.com/projects/284888099/the-agile-deck?ref=category_newest)
-[Call Control Home - Spam blocker for your phone.](https://www.kickstarter.com/projects/kedlin/call-control-home-spam-blocker-for-your-phone?ref=category_newest)
-[Return of the Frantone Cream Puff](https://www.kickstarter.com/projects/1703840044/return-of-the-frantone-cream-puff?ref=category_newest)
-[Free Web based timesheet for online time tracking.](https://www.kickstarter.com/projects/1206816065/free-web-based-timesheet-for-online-time-tracking?ref=category_newest)
-[Biotech matching for Dogs and Cats - a Biotechnology Startup](https://www.kickstarter.com/projects/pet-digital-eternity/pet-match-partner-mating-for-your-dogs-and-cats?ref=category_newest)
-[Martin John & The Seth Material Audio Book Project](https://www.kickstarter.com/projects/martinjohn/martin-john-and-the-seth-material-audio-book-proje?ref=category_newest)
-[VIAPERFORMANCE. More Art. More Work. More Awesome!](https://www.kickstarter.com/projects/1069859720/viaperformance-more-art-more-work-more-awesome?ref=category_newest)
-[Mystery Science Theatre 3000 'Big Trouble in Deep 13'  Print](https://www.kickstarter.com/projects/1979377354/mystery-science-theatre-3000-big-trouble-in-deep-1?ref=category_newest)
-[PixelPete2010: World's Largest Rubik's Cube Mosaic](https://www.kickstarter.com/projects/pixelpete/pixelpete-2010?ref=category_newest)
-[Bards Comic Deluxe Compilation](https://www.kickstarter.com/projects/487163586/bards-comic-deluxe-compilation?ref=category_newest)
-[Holy Family, in renaissance style. For your 3D printer.](https://www.kickstarter.com/projects/crosslances/holy-family-in-renaissance-style-for-your-3d-print?ref=category_newest)
-[BARAGONTA - Luxury Hotel & Resort Villa](https://www.kickstarter.com/projects/2075353592/baragonta-luxury-hotel-and-resort-villa?ref=category_newest)
-[Branding Toolkit for Changemakers](https://www.kickstarter.com/projects/annemiltenburg/branding-toolkit-for-changemakers?ref=category_newest)
-[Video-Tape- New works from Through the Body](https://www.kickstarter.com/projects/148982461/video-tape-new-works-from-through-the-body?ref=category_newest)
-[Printosaurus - Personalised Framed Prints](https://www.kickstarter.com/projects/once-upon-a-print/printosaurus-personalised-framed-prints?ref=category_newest)
-[Charm Bikini - Luxury designer swimwear that make heads turn](https://www.kickstarter.com/projects/charmbikini/charm-bikini-luxury-designer-swimwear-that-make-he?ref=category_newest)
-[EMPATHY Shoes; comfy sneaks, personalised x LASERS & TATTOOS](https://www.kickstarter.com/projects/1181654223/empathy-shoes-comfy-sneaks-personalised-x-lasers-a?ref=category_newest)
-[Chrome Brogue Shoes for men/women Full leather](https://www.kickstarter.com/projects/205367887/chrome-brogue-shoes-for-men-women-full-leather?ref=category_newest)
-[Above the Cosmodrome : a stopmotion animated short](https://www.kickstarter.com/projects/671187765/above-the-cosmodrome-a-stopmotion-animated-short?ref=category_newest)
-[Cosplay Combat - Action Series](https://www.kickstarter.com/projects/tesskielhamer/cosplay-combat-action-series?ref=category_newest)
-[Haute Ohio Magazine](https://www.kickstarter.com/projects/852055056/haute-ohio-magazine?ref=category_newest)
-[Through Gay Eyes Documentary](https://www.kickstarter.com/projects/ccmovies/through-gay-eyes-documentary?ref=category_newest)
-[Follow Noah: Japan on Foot](https://www.kickstarter.com/projects/noahedward/follow-noah-japan-on-foot?ref=category_newest)
-[Nothing Like Chocolate: A Feature Documentary](https://www.kickstarter.com/projects/291830041/nothing-like-chocolate-a-feature-documentary?ref=category_newest)
-[The Greatest Gaming Adventure Ever Told...](https://www.kickstarter.com/projects/1013222110/the-greatest-gaming-adventure-ever-told?ref=category_newest)
-[The Lobsterface Chronicles](https://www.kickstarter.com/projects/firefuelproductions/the-lobsterface-chronicles?ref=category_newest)
-[Classrooms Students LOVE](https://www.kickstarter.com/projects/1063825458/classrooms-students-love?ref=category_newest)
-[A Little Crime Of Passion](https://www.kickstarter.com/projects/1191942951/a-little-crime-of-passion?ref=category_newest)
-[Pinellas Park](https://www.kickstarter.com/projects/1201273861/pinellas-park?ref=category_newest)
-[Room 22 - A short film by Beatrice Hazlehurst & Ariana Ward](https://www.kickstarter.com/projects/313371268/room-22-a-short-film-by-beatrice-hazlehurst-and-ar?ref=category_newest)
-[Pre-Order \"Frankenstein Created Bikers\"](https://www.kickstarter.com/projects/1334887287/pre-order-frankenstein-created-bikers?ref=category_newest)
-[Bound to You - A Romance Film](https://www.kickstarter.com/projects/1372539923/bound-to-you-a-romance-film?ref=category_newest)
-[Light After War](https://www.kickstarter.com/projects/344871441/light-after-war?ref=category_newest)
-[The \"REBORN From Above\" Online Staged Film.](https://www.kickstarter.com/projects/293077066/the-reborn-from-above-online-staged-film?ref=category_newest)
-[Pyros Brick Oven Pizza in a Food Truck.](https://www.kickstarter.com/projects/1981254829/pyros-brick-oven-pizza-in-a-food-truck?ref=category_newest)
-[Quicks Burger Restaurant in Mönchengladbach](https://www.kickstarter.com/projects/1798520735/quicks-burger-restaurant-in-monchengladbach?ref=category_newest)
-[Weekend in Rokugan 2015](https://www.kickstarter.com/projects/1804452217/weekend-in-rokugan-2015?ref=category_newest)
-[Caramel Apple Pie Jelly...brought to you by That's My Jam!](https://www.kickstarter.com/projects/927530218/caramel-apple-pie-jellybrought-to-you-by-thats-my?ref=category_newest)
-[Alice in Wonderland Playing Cards](https://www.kickstarter.com/projects/maryamayo/alice-playing-cards?ref=category_newest)
-[Make/100 - Wooden Puzzle Cubes](https://www.kickstarter.com/projects/clockworkevolution/wooden-puzzle-cube?ref=category_newest)
-[Spot the Kitty](https://www.kickstarter.com/projects/1797439988/spot-the-kitty?ref=category_newest)
-[Minzo Messenger by Minzo Studios](https://www.kickstarter.com/projects/229917024/minzo-messenger-by-minzo-studios?ref=category_newest)
-[Cocktail Hour ♠ Playing Cards](https://www.kickstarter.com/projects/sferone/cocktail-hour-playing-cards?ref=category_newest)
-[EXO ONE](https://www.kickstarter.com/projects/exbleative/exo-one-0?ref=category_newest)
-[Minecraft Photo Book](https://www.kickstarter.com/projects/intradox/minecraft-photo-book?ref=category_newest)
-[Voices of Light: Guatemala 2012](https://www.kickstarter.com/projects/742119131/voices-of-light-guatemala-2012?ref=category_newest)
-[Point Counter Point: a solo violin project by Sarah Kapustin](https://www.kickstarter.com/projects/1175213700/point-cointer-point-a-solo-violin-project-by-sarah?ref=category_newest)
-[Blues Gone Cyber - taking Chicago Blues online](https://www.kickstarter.com/projects/bluesgonecyber/blues-gone-cyber-taking-chicago-blues-online?ref=category_newest)
-[Abel Nawsan's Burmese Gospel Album - 'The Cry of My Heart'](https://www.kickstarter.com/projects/240871777/abel-nawsans-burmese-gospel-album-the-cry-of-my-he?ref=category_newest)
-[Sav Young - In My Own Words](https://www.kickstarter.com/projects/1650597878/sav-young-in-my-own-words?ref=category_newest)
-[New and different Country Artist!](https://www.kickstarter.com/projects/Palmer/new-and-different-country-artist?ref=category_newest)
-[I want to become a dj](https://www.kickstarter.com/projects/1581456118/i-want-to-become-a-dj?ref=category_newest)
-[Unleash a New Music Genre:  Horror-Techno](https://www.kickstarter.com/projects/1405434908/unleash-a-new-music-genre-horror-techno?ref=category_newest)
-[A Day in the Life of a Struggling family](https://www.kickstarter.com/projects/1458096208/a-day-in-the-life-of-a-struggling-family?ref=category_newest)
-[Multimedia Music/Video/Documentary Project](https://www.kickstarter.com/projects/454164350/multimedia-music-video-documentary-project?ref=category_newest)
-[Wayne Escoffery Quintet:The Only Son of One](https://www.kickstarter.com/projects/287605074/wayne-escoffery-quintet-the-only-son-of-one?ref=category_newest)
-[HOT DANG! Help fund our debut album!!](https://www.kickstarter.com/projects/2129568973/hot-dang-help-fund-our-debut-album?ref=category_newest)
-[Llandudno Jazz Festival 2016](https://www.kickstarter.com/projects/2114725236/llandudno-jazz-music-festival-2016?ref=category_newest)
-[My Debut Pop/R&B EP](https://www.kickstarter.com/projects/calvinmathews/my-debut-pop-randb-ep?ref=category_newest)
-[\"The Naked Pixel\" Fine Art Nudes collection. Jordanlehn](https://www.kickstarter.com/projects/1229765692/the-naked-pixel-fine-art-nudes-collection-jordanle?ref=category_newest)
-[Foresight, the debut EP by The Hunt Club](https://www.kickstarter.com/projects/1989813428/the-hunt-clubs-debut-ep-foresight?ref=category_newest)
-[Packing For Exile](https://www.kickstarter.com/projects/1458246494/packing-for-exile?ref=category_newest)
-[Dilana: Her Album, Her way](https://www.kickstarter.com/projects/dilana/dilana-her-album-her-way?ref=category_newest)
-[Chine: un pays de contrastes / China: a country of contrasts](https://www.kickstarter.com/projects/1833382438/chine-china?ref=category_newest)
-[Kabbalah Garden - Songs That Inspire and Heal](https://www.kickstarter.com/projects/1298991695/kabbalah-garden-songs-that-inspire-and-heal?ref=category_newest)
-[StickyArt! - The World's First Sticky Pad Coloring Book!](https://www.kickstarter.com/projects/1637019286/stickyart?ref=category_newest)
-[Maggie and The Sprinkle Tree](https://www.kickstarter.com/projects/449418719/maggie-and-the-sprinkle-tree?ref=category_newest)
-[The Unlonely Days](https://www.kickstarter.com/projects/368841411/the-unlonely-days?ref=category_newest)
-[Saving American Heritage, the Famed Magazine of History](https://www.kickstarter.com/projects/americanheritage/saving-american-heritage-the-famed-magazine-of-his?ref=category_newest)
-[Sleepless Issue #1](https://www.kickstarter.com/projects/zgermaniuk/sleepless-issue-0?ref=category_newest)
-[Project Tovix](https://www.kickstarter.com/projects/1067233853/help-me-build-an-ios-puzzle-game?ref=category_newest)
-[Place! – Get connected like never before](https://www.kickstarter.com/projects/716335164/place-leave-your-impression?ref=category_newest)
-[DreamMe is the new companion for your smartphone at night.](https://www.kickstarter.com/projects/675453850/dreamme-is-the-new-companion-for-your-smartphone-a?ref=category_newest)
-[Jarduino](https://www.kickstarter.com/projects/18903703/jarduino?ref=category_newest)
-[OpenCVMeter - Rediscover Your Capacitors !](https://www.kickstarter.com/projects/limpkin/opencvmeter-rediscover-your-capacitors?ref=category_newest)
-[Fleye - Your Personal Flying Robot](https://www.kickstarter.com/projects/gofleye/fleye-your-personal-flying-robot?ref=category_newest)
-[Multi-function kids chair with a \"one for one\" concept.](https://www.kickstarter.com/projects/shipachair/multi-function-kids-chair-with-a-one-for-one-conce?ref=category_newest)
-[Good Dirt Radio: Climate Solutions for Individuals Nationwide](https://www.kickstarter.com/projects/1209541706/good-dirt-radio-climate-solutions-for-individuals?ref=category_newest)
-[Become a Pro Linux Developer; Complete Linux Series on Udemy](https://www.kickstarter.com/projects/raminonstuff/become-a-pro-linux-developer-complete-linux-series?ref=category_newest)
-[GluWonderful - A place for us](https://www.kickstarter.com/projects/913803787/gluwonderful-a-place-for-us?ref=category_newest)
-[ERP Lite](https://www.kickstarter.com/projects/411374078/erp-lite?ref=category_newest)
-[(TBC) I'M JUST HERE TO BUY SOY SAUCE by Jingan Young](https://www.kickstarter.com/projects/pokfulamrd/uk-premiere-im-just-here-to-buy-soy-sauce-by-jinga?ref=category_newest)
-[A Dollar and a Dream](https://www.kickstarter.com/projects/1506051579/a-dollar-and-a-dream-0?ref=category_newest)
-[fangurley prints](https://www.kickstarter.com/projects/fangurley/fangurley-prints?ref=category_newest)
-[Baxter tShirt](https://www.kickstarter.com/projects/1537368059/baxter-tshirt?ref=category_newest)
-[Imagine Postcards](https://www.kickstarter.com/projects/750668843/imagine-postcards?ref=category_newest)
-[Save The Maidan Museum Ukraine](https://www.kickstarter.com/projects/215865959/save-the-maidan-museum-ukraine?ref=category_newest)
-[The Road to Artwalk...Begins with the First Step](https://www.kickstarter.com/projects/1108640325/the-road-to-artwalkbegins-with-the-first-step?ref=category_newest)
-[Tuckerman Ravine Drawn by James Niehues](https://www.kickstarter.com/projects/1743331958/tuckerman-ravine-drawn-by-james-niehues?ref=category_newest)
-[living gardenART = creative community](https://www.kickstarter.com/projects/1147360110/living-gardenart-creative-community?ref=category_newest)
-[Help us start blanc.gallery!](https://www.kickstarter.com/projects/1635144038/help-us-start-blancgallery?ref=category_newest)
-[The Cat's Pajamas Community Mural by David Whitley](https://www.kickstarter.com/projects/262051472/the-cats-pajamas-community-mural-by-david-whitley?ref=category_newest)
-[Amazing Holiday Concerts for Kids by Arsenal à musique:](https://www.kickstarter.com/projects/1380991018/larsenal-a-musique-35-year-celebration?ref=category_newest)
-[We are a American owned Glass Blowers and Lampworkers.](https://www.kickstarter.com/projects/678847152/we-are-a-american-owned-glass-blowers-and-lampwork?ref=category_newest)
-[BEAUTIFUL SCULPTURES TO ENJOY](https://www.kickstarter.com/projects/787073944/beautiful-sculptures-to-enjoy?ref=category_newest)
-[Rare Animal Skull Replicas and Cryptozology/Fantasy Skulls](https://www.kickstarter.com/projects/1110020087/rare-animal-skull-replicas-and-cryptozology-fantas?ref=category_newest)
-[Cork it Now](https://www.kickstarter.com/projects/303243927/cork-it-now?ref=category_newest)
-[BETTER RE, Upcycling Power Pack reusing smartphone batteries](https://www.kickstarter.com/projects/betterre/better-re-upcycling-power-pack-reusing-smartphone?ref=category_newest)
-[CHIVE TALKIN IS ABOUT TO BLOW YOUR MINTY MINDS!](https://www.kickstarter.com/projects/chivetalkin/chive-talkin-is-about-to-blow-your-minty-minds?ref=category_newest)
-[\"The Black Shorts\" a documentary film](https://www.kickstarter.com/projects/2010383553/the-black-shorts-a-documentary-film?ref=category_newest)
-[The McKinleys](https://www.kickstarter.com/projects/mckinleys/the-mckinleys?ref=category_newest)
-[CharmHeads - Charmed Headbands for Girls](https://www.kickstarter.com/projects/2085801494/charmheads-charmed-headbands-for-girls?ref=category_newest)
-[I LOVE YOU BUT I'VE CHOSEN COMICS T-Shirt](https://www.kickstarter.com/projects/challengers/i-love-you-but-ive-chosen-comics-t-shirt?ref=category_newest)
-[Youtube movie making for Norwegian living in peru.](https://www.kickstarter.com/projects/1763640264/youtube-movie-making-for-norwegian-living-in-peru?ref=category_newest)
-[For the Kids! Help Fund Peanut's TV Show and New Album!](https://www.kickstarter.com/projects/peanut/for-the-kids-help-fund-peanuts-tv-show-and-new-alb?ref=category_newest)
-[Onyx](https://www.kickstarter.com/projects/1879763136/onyx-0?ref=category_newest)
-[Edward](https://www.kickstarter.com/projects/powercore/edward-0?ref=category_newest)
-[PROJECT WILD THING: A feature-length documentary](https://www.kickstarter.com/projects/projectwildthing/project-wild-thing-a-feature-length-documentary?ref=category_newest)
-[DEPTHS of Madness-Documovie](https://www.kickstarter.com/projects/1484914081/depths-of-madness?ref=category_newest)
-[Kaito - Die Kämpferische Frau](https://www.kickstarter.com/projects/1116032991/kaito-die-kampferische-frau?ref=category_newest)
-[Bridal Fever (Horror Feature Film)](https://www.kickstarter.com/projects/692102449/bridal-fever-feature-film-violent-horror-slasher?ref=category_newest)
-[Mountain Kingdom Bow Ties](https://www.kickstarter.com/projects/1793303326/mountain-kingdom-bow-ties?ref=category_newest)
-[An Arrangement](https://www.kickstarter.com/projects/1913422550/an-arrangement?ref=category_newest)
-[Letting Go](https://www.kickstarter.com/projects/1027194579/letting-go-1?ref=category_newest)
-[Snap. A short film about destiny. And hats.](https://www.kickstarter.com/projects/76665574/snap-a-short-film-about-destiny-and-hats?ref=category_newest)
-[STRING](https://www.kickstarter.com/projects/1369443177/string?ref=category_newest)
-[Pokémon Red Live Action Web Series](https://www.kickstarter.com/projects/1432864041/pokemon-red-live-action-web-series?ref=category_newest)
-[Introducing the Fascinating World of Vietnamese Coffee](https://www.kickstarter.com/projects/244588283/introducing-the-fascinating-world-of-vietnamese-co?ref=category_newest)
-[IRON HORSE TV = MUSIC, TRAVEL, FOOD, BIKES, & MORE!](https://www.kickstarter.com/projects/2032282670/iron-horse-tv-music-travel-food-bikes-and-more?ref=category_newest)
-[The Legend of Buck Rydell](https://www.kickstarter.com/projects/buckrydell/the-legend-of-buck-rydell?ref=category_newest)
-[Tuberville The Series](https://www.kickstarter.com/projects/6559583/tuberville-the-series-0?ref=category_newest)
-[Collegetown: Season 2](https://www.kickstarter.com/projects/759962832/collegetown-season-2?ref=category_newest)
-[Leigh Exotic Fruit Farm](https://www.kickstarter.com/projects/485699950/leigh-exotic-fruit-farm?ref=category_newest)
-[Paranormal Encounters](https://www.kickstarter.com/projects/paranormalencounters/paranormal-encounters-0?ref=category_newest)
-[Hong Kong Egg Waffle (Eggette) Stand](https://www.kickstarter.com/projects/1812805753/hong-kong-egg-waffle-eggette-stand?ref=category_newest)
-[Hot dog! Hot dog! Hot diggity dog!](https://www.kickstarter.com/projects/374428172/hot-dog-hot-dog-hot-diggity-dog?ref=category_newest)
-[PDX Rollin' Hawgs mobile BBQ trailer](https://www.kickstarter.com/projects/1200623624/pdx-rollin-hawgs-mobile-bbq-trailer?ref=category_newest)
-[Italalia good cheap aussie and italian food](https://www.kickstarter.com/projects/1664060997/italalia-good-cheap-aussie-and-italian-food?ref=category_newest)
-[SWEET CARROT GRANDVIEW](https://www.kickstarter.com/projects/223487110/sweet-carrot-grandview?ref=category_newest)
-[Organic Soy Sauce Co.](https://www.kickstarter.com/projects/16927373/organic-soy-sauce-co?ref=category_newest)
-[Joe's Oat Patties is  Easy Organic Vegan Food!](https://www.kickstarter.com/projects/1264050565/joes-oat-patties-is-easy-organic-vegan-food?ref=category_newest)
-[Iris Kianna](https://www.kickstarter.com/projects/1729600869/iris-kianna?ref=category_newest)
-[Brent Gaines - Family Stories EP](https://www.kickstarter.com/projects/878589118/brent-gaines-family-stories-ep?ref=category_newest)
-[Whyte Panther Guitar Fund](https://www.kickstarter.com/projects/936238295/whyte-panther-guitar-fund?ref=category_newest)
-[Archeology Bites - Survival Horror Puzzle Game](https://www.kickstarter.com/projects/1859963168/archeology-bites-survival-horror-puzzle-game?ref=category_newest)
-[Strange Magic: New Magic Systems for the Pathfinder RPG](https://www.kickstarter.com/projects/1394597776/strange-magic-new-magic-systems-for-the-pathfinder?ref=category_newest)
-[Some Enchanted Evening - Debut Album Rodney Earl Clarke](https://www.kickstarter.com/projects/1265793340/some-enchanted-evening-debut-album-rodney-earl-cla?ref=category_newest)
-[Music for a While](https://www.kickstarter.com/projects/263002666/music-for-a-while?ref=category_newest)
-[Chasing Time](https://www.kickstarter.com/projects/1584032548/chasing-time?ref=category_newest)
-[2080 ElectroChipDiscoPop EP premium CD and Vinyl production.](https://www.kickstarter.com/projects/the2080/2080-electrochipdiscopop-ep-premium-cd-and-vinyl-p?ref=category_newest)
-[BANSHEE The Game and Feature Film](https://www.kickstarter.com/projects/sistratton/banshee-the-game-and-feature-film?ref=category_newest)
-[Adam Winn EP](https://www.kickstarter.com/projects/2096801103/adam-winn-ep?ref=category_newest)
-[Covers & Cover-Ups](https://www.kickstarter.com/projects/991395685/covers-and-cover-ups?ref=category_newest)
-[Be part of the next SMB Project album](https://www.kickstarter.com/projects/smbproject/be-part-of-the-next-smb-project-album?ref=category_newest)
-[Sugapablo wants to record a new studio album.](https://www.kickstarter.com/projects/1037445409/sugapablo-wants-to-record-a-new-studio-album?ref=category_newest)
-[The Little Twins - KWOD](https://www.kickstarter.com/projects/thelittletwins/the-little-twins-kwod?ref=category_newest)
-[Debut Solo Project Recording](https://www.kickstarter.com/projects/jamesadams/debut-solo-project-recording?ref=category_newest)
-[We Killed The Lion EP Release.](https://www.kickstarter.com/projects/wekilledthelion/we-killed-the-lion-ep-release?ref=category_newest)
-[We Are Invisible Monsters - Help Fund Our Next EP!](https://www.kickstarter.com/projects/1395948383/we-are-invisible-monsters-help-fund-our-next-ep?ref=category_newest)
-[More Than War - A New Look At A Familiar Country](https://www.kickstarter.com/projects/801374120/morethanwar-a-new-look-at-a-familiar-country?ref=category_newest)
-[Cyanotype Hardcover Book 20x20](https://www.kickstarter.com/projects/msphotographie/cyanotype-hardcover-book-20x20?ref=category_newest)
-[SAFE - a book exploring London's queer performance scene](https://www.kickstarter.com/projects/linneafrank/safe-a-book-exploring-londons-queer-performance-sc?ref=category_newest)
-[Charlotte's Fallen:  Portrait of a City](https://www.kickstarter.com/projects/jmeierphoto/charlottes-fallen-portrait-of-a-city?ref=category_newest)
-[The Giggle Farm Support](https://www.kickstarter.com/projects/215161280/the-giggle-farm-support?ref=category_newest)
-[Stop the Bullying: Help Publish Titles of the Wrong Kind!](https://www.kickstarter.com/projects/1932210646/stop-the-bullying-help-publish-titles-of-the-wrong?ref=category_newest)
-[The Awful Bigness: Clyfford Still and Abstract Expressionism](https://www.kickstarter.com/projects/2127439458/the-awful-bigness-clyfford-still-and-abstract-expr?ref=category_newest)
-[2016 Fantasy Releases: Two New Worlds!](https://www.kickstarter.com/projects/815743020/2016-fantasy-releases-two-new-worlds?ref=category_newest)
-[Dark and Broken Things - A Novel](https://www.kickstarter.com/projects/1474872210/dark-and-broken-things-a-novel?ref=category_newest)
-[Outcasts of Velrune: Abandoned](https://www.kickstarter.com/projects/1564820244/outcasts-of-velrune-abandoned?ref=category_newest)
-[Beneficial Shock! Magazine](https://www.kickstarter.com/projects/1538251165/beneficial-shock-magazine?ref=category_newest)
-[Bandit's Run (A True Story)](https://www.kickstarter.com/projects/banditsrun/bandits-run-a-true-story?ref=category_newest)
-[Biddoy: Find Lucky Friends](https://www.kickstarter.com/projects/1806120448/biddoy-find-lucky-friends?ref=category_newest)
-[The Kill Switch](https://www.kickstarter.com/projects/1787005277/the-kill-switch?ref=category_newest)
-[Galago: Electronics Prototyping Board to Make Things Better](https://www.kickstarter.com/projects/kuy/galago-make-things-better?ref=category_newest)
-[SPQR website](https://www.kickstarter.com/projects/1837997268/spqr-website?ref=category_newest)
-[MANGOAPP.IO the new website development and hosting platform](https://www.kickstarter.com/projects/959969728/mangoappio-the-new-website-development-and-hosting?ref=category_newest)
-[(Ai1) Acoustic Pre-Amp/DI (Guitar, Mandolin, Violin, Fiddle)](https://www.kickstarter.com/projects/1742603391/ai1-acoustic-pre-amp-di?ref=category_newest)
-[Dolla 4 Impala](https://www.kickstarter.com/projects/228945881/dolla-4-impala?ref=category_newest)
-[JWildfire flame GPU renderer](https://www.kickstarter.com/projects/1646347716/jwildfire-flame-gpu-renderer?ref=category_newest)
-[Let's meet the States](https://www.kickstarter.com/projects/287202788/lets-meet-the-states?ref=category_newest)
-[Pimp My Tattoo Road Show National Tattoo Party T.V. Series](https://www.kickstarter.com/projects/nationaltattooparty/pimp-my-tattoo-road-show-national-tattoo-party-tv?ref=category_newest)
-[BEWARE MADAME LA GUILLOTINE!  An Interactive StoryApp Tour](https://www.kickstarter.com/projects/2091425754/beware-madame-la-guillotine-an-interactive-storyap?ref=category_newest)
-[The Edge Of Beyond](https://www.kickstarter.com/projects/831137100/the-edge-of-beyond?ref=category_newest)
-[ORMOLYCKA PROJECT oo1 - synt.tofs \"ass troll vs. bass troll\"](https://www.kickstarter.com/projects/1932859237/ormolycka-project-oo1-synttofs-ass-troll-vs-bass-t?ref=category_newest)
-[Safa wants you to support her to achieve her dream](https://www.kickstarter.com/projects/1872528161/help-refugee-safa-pay-for-art-supplies-to-achieve?ref=category_newest)
-[\"And Then There Was This\" Art Book by Greg DiGenti](https://www.kickstarter.com/projects/gregdigenti/and-then-there-was-this-an-art-book-by-greg-digent?ref=category_newest)
-[Lake Superior, Pointillism Project](https://www.kickstarter.com/projects/stipplefreak/lake-superior-pointillism-project?ref=category_newest)
-[Beneath Our Skin](https://www.kickstarter.com/projects/638916668/beneath-our-skin?ref=category_newest)
-[Celtic Colouring by Aurelie S](https://www.kickstarter.com/projects/1231138667/celtic-coloring-by-aurelie-s?ref=category_newest)
-[Fairground Mural Project- Industries of Del Norte County](https://www.kickstarter.com/projects/148383257/fairground-mural-project-industries-of-del-norte-c?ref=category_newest)
-[Flexible Public Art](https://www.kickstarter.com/projects/808744574/flexible-public-art?ref=category_newest)
-[Perfect Assassins: Year One](https://www.kickstarter.com/projects/whynotcomics/perfect-assassins?ref=category_newest)
-[Exile Jack 2](https://www.kickstarter.com/projects/188256733/exile-jack-2?ref=category_newest)
-[Sabal Palm Tree Seedlings need transplantin into bigger pots](https://www.kickstarter.com/projects/1168848866/sabal-palm-tree-seedlings-need-transplantin-into-b?ref=category_newest)
-[keep your sparkle. vegan, cruelty free, handmade, luxurious.](https://www.kickstarter.com/projects/1467463063/keep-your-sparkle-vegan-cruelty-free-handmade-luxu?ref=category_newest)
-[Custom Handmade Acoustic Log Phone/Tablet Dock](https://www.kickstarter.com/projects/543805600/custom-handmade-acoustic-log-phone-tablet-dock?ref=category_newest)
-[Gatekeeper - Your carabiner in shining armor](https://www.kickstarter.com/projects/gamblemade/gatekeeper-your-carabiner-in-shining-armor?ref=category_newest)
-[The Magwoods: Magnets That Help You Do More](https://www.kickstarter.com/projects/63359481/the-magwoods-magnets-that-help-you-do-more?ref=category_newest)
-[Operation Goddess - Luxury Accessories With Quotes](https://www.kickstarter.com/projects/602950259/operation-goddess-luxury-accessories-with-quotes?ref=category_newest)
-[Ghanto Shoe - everyday lifestyle & leisure travel for woman](https://www.kickstarter.com/projects/1023579499/ghanto-shoe-everyday-lifestyle-and-leisure-travel?ref=category_newest)
-[The Campus Sleeve](https://www.kickstarter.com/projects/1158293395/the-campus-sleeve?ref=category_newest)
-[Stockingfoot Knits](https://www.kickstarter.com/projects/stockingfootknits/stockingfoot-knits?ref=category_newest)
-[Live Love Gameday™ - Life begins when the season starts!](https://www.kickstarter.com/projects/livelovegameday/live-love-gamedaytm-life-begins-when-the-season-st?ref=category_newest)
-[Stephen Burrows Now!](https://www.kickstarter.com/projects/1373431813/stephen-burrows-now?ref=category_newest)
-[Renegade Repos web show](https://www.kickstarter.com/projects/1707992326/renegade-repos-web-show?ref=category_newest)
-[LHASA HOODIE:  Premium Hoodie that's Actually Eco-Friendly](https://www.kickstarter.com/projects/118402218/lhasa-hoodie-premium-hoodie-thats-actually-eco-fri?ref=category_newest)
-[Mortimer's Sweaters: For Cold Puppy Dogs](https://www.kickstarter.com/projects/1630085042/mortimers-sweaters-for-cold-puppy-dogs?ref=category_newest)
-[La Casa del Ritmo, A Film About Los Amigos Invisibles](https://www.kickstarter.com/projects/233082065/la-casa-del-ritmo-a-film-about-los-amigos-invisibl?ref=category_newest)
-[Wayne Toups Documentary](https://www.kickstarter.com/projects/1615757967/wayne-toups-documentary?ref=category_newest)
-[Rock Star](https://www.kickstarter.com/projects/1034136260/rock-star-1?ref=category_newest)
-[Paradise 3000](https://www.kickstarter.com/projects/2112933208/paradise-3000?ref=category_newest)
-[Pop Nebula Dreamer Season 1](https://www.kickstarter.com/projects/348621665/pop-nebula-dreamer-season-1?ref=category_newest)
-[One Way](https://www.kickstarter.com/projects/oneway/one-way?ref=category_newest)
-[Wind - A Short Film](https://www.kickstarter.com/projects/436051881/wind-a-short-film?ref=category_newest)
-[Cutting Edge Outerwear: Made in NYC](https://www.kickstarter.com/projects/2018794466/cutting-edge-outerwear-made-in-nyc?ref=category_newest)
-[Meisenbearillo's Shuffle, Don't Stop](https://www.kickstarter.com/projects/2108501992/meisenbearillos-shuffle-dont-stop?ref=category_newest)
-['Mc Devvo - Yorkshire Till i Die' Official Music Video](https://www.kickstarter.com/projects/2102953400/mc-devvo-yorkshire-till-i-die-official-music-video?ref=category_newest)
-[Name TBD - An Environmental Awareness & Sustainability Short](https://www.kickstarter.com/projects/891280271/name-tbd-an-environmental-awareness-and-sustainabi?ref=category_newest)
-[LifeSavers - a short film](https://www.kickstarter.com/projects/510176607/lifesavers-a-short-film?ref=category_newest)
-[LOCKER 212: Reloaded](https://www.kickstarter.com/projects/1676524543/locker-212-reloaded?ref=category_newest)
-[Carnies: Traveling Meat Circus](https://www.kickstarter.com/projects/carnies/carnies-traveling-meat-circus?ref=category_newest)
-[Good 'Ol Trumpet](https://www.kickstarter.com/projects/2046542234/good-ol-trumpet?ref=category_newest)
-[\"Roadkill: A Love Story\" - An international indie film project being shot in Michigan](https://www.kickstarter.com/projects/RaphaelBuechel/roadkill-a-love-story-an-international-indie-film-0?ref=category_newest)
-[Life is better with coffee!](https://www.kickstarter.com/projects/2084327879/life-is-better-with-coffee?ref=category_newest)
-[Simmons family kitchen bbq sauces and rubs pre order](https://www.kickstarter.com/projects/1041324502/simmons-family-kitchen-bbq-sauces-and-rubs-pre-ord?ref=category_newest)
-[Mississippi Brewing's Southern Light Bottle Cap Bonanza!](https://www.kickstarter.com/projects/437114229/mississippi-brewings-southern-light-bottle-cap-bon?ref=category_newest)
-[This Chick's Kitchen - Gluten free - farm food cafe](https://www.kickstarter.com/projects/thischickskitchen/thischicks-kitchen-gluten-free-farm-food-cafe?ref=category_newest)
-[Texas Hold'em Poker Faces](https://www.kickstarter.com/projects/2030351653/texas-holdem-poker-faces?ref=category_newest)
-[Higher Taste The Vegan Food Truck](https://www.kickstarter.com/projects/highertaste/higher-food?ref=category_newest)
-[Cupcakes to Cafes: Start-up to a Commercial Kitchen](https://www.kickstarter.com/projects/500873886/cupcakes-to-cafes-start-up-to-a-commercial-kitchen?ref=category_newest)
-[HorROAR! Playing Cards](https://www.kickstarter.com/projects/399370135/horroar-playing-cards-0?ref=category_newest)
-[Poster Maps of Mystery!](https://www.kickstarter.com/projects/mapmaker/poster-maps-of-mystery?ref=category_newest)
-[Castle Dracula](https://www.kickstarter.com/projects/1840293109/castle-dracula-0?ref=category_newest)
-[Linkage - A DNA Card Game with an Educational Attitude!](https://www.kickstarter.com/projects/geniusgames/linkage-a-dna-card-game-with-an-educational-attitu?ref=category_newest)
-[Mob Town](https://www.kickstarter.com/projects/5thstreetgames/mob-town?ref=category_newest)
-[Storyteller Cards: A Playing Card Deck To Inspire Creativity](https://www.kickstarter.com/projects/239309591/storyteller-cards-a-playing-card-deck-to-inspire-c?ref=category_newest)
-[Flash Point: Fire Rescue - Extreme Danger](https://www.kickstarter.com/projects/2012515236/flash-point-fire-rescue-extreme-danger?ref=category_newest)
-[Family-Friendly Minecraft Server](https://www.kickstarter.com/projects/589321773/family-friendly-minecraft-server?ref=category_newest)
-[SAURIAN - An open world dinosaur survival experience](https://www.kickstarter.com/projects/1379624404/saurian-an-open-world-dinosaur-survival-experience?ref=category_newest)
-[Castle Heist](https://www.kickstarter.com/projects/673124979/castle-heist?ref=category_newest)
-[Basement](https://www.kickstarter.com/projects/2099606325/basement?ref=category_newest)
-[the Indiana Sports Report](https://www.kickstarter.com/projects/774712790/the-indiana-sports-report?ref=category_newest)
-[XSTINK](https://www.kickstarter.com/projects/theseaisee/xstink-0?ref=category_newest)
-[Alex Hilton Band First Album!](https://www.kickstarter.com/projects/596755071/alex-hilton-band-first-album?ref=category_newest)
-[Aunt G & the Stone City Nephews CD and band launch!](https://www.kickstarter.com/projects/187535541/aunt-g-and-the-stone-city-nephews-cd-and-band-laun?ref=category_newest)
-[Lisa Landucci's Solo Album](https://www.kickstarter.com/projects/782216322/lisa-landuccis-solo-album?ref=category_newest)
-[Be A Part Of Sam Riggs Next Album](https://www.kickstarter.com/projects/1253430286/be-a-part-of-sam-riggs-next-album?ref=category_newest)
-[Bach to the Future - An Exciting New Commissions Project](https://www.kickstarter.com/projects/28134395/bach-to-the-future-an-exciting-new-commissions-pro?ref=category_newest)
-[S.O.C. Rovers HONK Loud to Keep Durham Disreputable!](https://www.kickstarter.com/projects/1407491721/soc-rovers-honk-loud-to-keep-durham-disreputable?ref=category_newest)
-[Brighter Than the Blues: A New Kelley McRae Album!!](https://www.kickstarter.com/projects/kelleymcrae/brighter-than-the-blues-a-new-kelley-mcrae-album?ref=category_newest)
-[Feast Your Senses 5 Shows 5 Cities Tour](https://www.kickstarter.com/projects/2122098867/feast-your-senses-5-shows-5-cities-tour?ref=category_newest)
-[RAPPER WITH A CAUSE Album / Tour / Documentary](https://www.kickstarter.com/projects/ayoungstarlet/music-artist-lyrical-designer-rap-star?ref=category_newest)
-[Safe House Project](https://www.kickstarter.com/projects/safehouseproject/safe-house-project?ref=category_newest)
-[Live at The Spotted Dog](https://www.kickstarter.com/projects/1503111747/live-at-the-spotted-dog?ref=category_newest)
-[mr. RAY Anti-Bullying Music/Video Project](https://www.kickstarter.com/projects/1740555833/mr-ray-anti-bullying-music-video-project?ref=category_newest)
-[SpaceShipDreamz-EP](https://www.kickstarter.com/projects/812875016/spaceshipdreamz-ep?ref=category_newest)
-[TFK......The End Is Where We Begin](https://www.kickstarter.com/projects/tfk/tfkthe-end-is-where-we-begin?ref=category_newest)
-[Muse Photography: ABBIE LANE VOL.2- Fine art nudes PIN UPS](https://www.kickstarter.com/projects/1150440308/muse-photography-abbie-lane-vol2-fine-art-nudes-pi?ref=category_newest)
-[Denver: 100 years of rich history](https://www.kickstarter.com/projects/399466862/denver-100-years-of-rich-history?ref=category_newest)
-[Help release my fourth novel, INTO DARKNESS](https://www.kickstarter.com/projects/802907024/help-release-my-fourth-novel-into-darkness?ref=category_newest)
-[The Patchwork Circus - A Children's Picture Book](https://www.kickstarter.com/projects/1102037264/the-patchwork-circus-a-childrens-picture-book?ref=category_newest)
-[Tales of the Kingdom - 3 illustrated children's storybooks!](https://www.kickstarter.com/projects/kingdomtalestrilogy/the-kingdom-tales-3-illustrated-storybooks-that-ki?ref=category_newest)
-[A book on American Handmade Bicycles](https://www.kickstarter.com/projects/1965227824/a-book-on-american-handmade-bicycles?ref=category_newest)
-[Poetic Cultivation](https://www.kickstarter.com/projects/mccpoetry/poetic-cultivation?ref=category_newest)
-[The Scrapbook of Miss Gail Standish Ward.](https://www.kickstarter.com/projects/2093360027/the-scrapbook-of-miss-gail-standish-ward-0?ref=category_newest)
-[Mama Benz](https://www.kickstarter.com/projects/687117156/mama-benz?ref=category_newest)
-[If My Walls Could Speak...](https://www.kickstarter.com/projects/1579212643/if-my-walls-could-speak?ref=category_newest)
-[Brainwash Magazine](https://www.kickstarter.com/projects/886195353/brainwash-magazine?ref=category_newest)
-[InaugurApp : il portale delle inaugurazioni](https://www.kickstarter.com/projects/1033226598/inaugurapp-il-portale-delle-inaugurazioni?ref=category_newest)
-[Flush:  A Novel](https://www.kickstarter.com/projects/ivanbaker/flush-a-novel?ref=category_newest)
-[The Geography of You and Me: A Memoir](https://www.kickstarter.com/projects/1357811956/the-geography-of-you-and-me-a-memoir?ref=category_newest)
-[Sideclick:  Streamline Your Streaming Experience](https://www.kickstarter.com/projects/1895389752/sideclick-streamline-your-streaming-experience-0?ref=category_newest)
-[Simple Chuck Produces the Purest H2O on the Planet](https://www.kickstarter.com/projects/simplechuck/simple-chuck-produces-the-purest-h2o-on-the-planet?ref=category_newest)
-[The Smart Garden: Your solution for better food.](https://www.kickstarter.com/projects/mattiaslepp/the-smart-garden-your-solution-for-better-food?ref=category_newest)
-[Smart Wallet: Locator & Charger a Fashionable Tech Accessory](https://www.kickstarter.com/projects/1361917084/smartwallet-tracker-and-battery-in-a-high-fashion?ref=category_newest)
-[Turn Your Phone Into Work Computer and Family Game Console](https://www.kickstarter.com/projects/andromium/andromium-the-next-evolution-computing-platform?ref=category_newest)
-[The Living Library](https://www.kickstarter.com/projects/403435550/the-living-library-0?ref=category_newest)
-[The Procrastinator Eliminator](https://www.kickstarter.com/projects/50403892/the-procrastinator-eliminator?ref=category_newest)
-[Remote Robotic Presence with Off the Shelf Hardware](https://www.kickstarter.com/projects/197468516/remote-robotic-presence-with-off-the-shelf-hardwar?ref=category_newest)
-[Make The Historic Dungeness Schoolhouse Stage ADA Accessible](https://www.kickstarter.com/projects/sequimmusem/make-the-historic-dungeness-schoolhouse-stage-ada?ref=category_newest)
-[\"Gourmet Mushrooms of the Northeast\" book / calendar 2018](https://www.kickstarter.com/projects/1087399218/gourmet-mushrooms-of-the-northeast-book-calendar-2?ref=category)
-[Boek 'Hoge nood wordt deugd: verhaal van een Crohn-getuige'](https://www.kickstarter.com/projects/536437959/boek-hoge-nood-wordt-deugd-verhaal-van-een-crohn-g?ref=category)
-[Pariah](https://www.kickstarter.com/projects/1784334872/pariah?ref=category)
-[Matador(a)](https://www.kickstarter.com/projects/1320408265/matadora?ref=category)
-[Practice Love World! Ease Your Suffering!](https://www.kickstarter.com/projects/1774732877/practice-love-world-ease-your-suffering?ref=category)
-[need funding for fousell.com expanding](https://www.kickstarter.com/projects/1512821147/need-funding-for-fousellcom-expanding?ref=category)
-[The Web Project](https://www.kickstarter.com/projects/1021595286/the-web-project?ref=category)
-[GREC: a global platform for gadolinium retention data](https://www.kickstarter.com/projects/1735594769/grec-a-global-platform-for-gadolinium-retention-da?ref=category)
-[PID - Proportional Integral Derivative Controller Workshop](https://www.kickstarter.com/projects/aryaalvarez/pid-proportional-integral-derivative-controller-wo?ref=category)
-[REACH Pocket Drones (Suspended)](https://www.kickstarter.com/projects/1020621768/reach-pocket-drones?ref=category)
-[solar garden light](https://www.kickstarter.com/projects/64886208/solar-garden-light?ref=category)
-[The Arduino Audio Shield](https://www.kickstarter.com/projects/docjava/the-arduino-audio-shield?ref=category)
-[Micro Hydroelectric Power Plant to Power Homes or  Buildings](https://www.kickstarter.com/projects/1016223042/micro-hydroelectric-power-plant-to-power-homes-or?ref=category)
-[VIPER: the Python IoT Design suite for Arduino, UDOO & Spark](https://www.kickstarter.com/projects/zerynth/viper-the-python-iot-design-suite-for-arduino-udoo?ref=category)
-[RGB Xmas Tree kits for Raspberry Pi, micro:bit & Codebug](https://www.kickstarter.com/projects/1937541932/rgb-xmas-tree-kits-for-raspberry-pi-micro-bit-and?ref=category)
-[Comeet](https://www.kickstarter.com/projects/1314848846/comeet?ref=category)
-[Patch It!](https://www.kickstarter.com/projects/patch-it/patch-it?ref=category)
-[Translation Network - Flyktingtelefonen](https://www.kickstarter.com/projects/1575939908/translation-network-flyktingtelefonen?ref=category)
-[Ambition Handicapped by Laziness](https://www.kickstarter.com/projects/1612595032/ambition-handicapped-by-laziness?ref=category)
-[The Magnificent Race #2](https://www.kickstarter.com/projects/325433593/the-magnificent-race-2?ref=category)
-[Tsura's Way](https://www.kickstarter.com/projects/2136942668/tsuras-way?ref=category)
-[The Adventures of Bodhi and Chester](https://www.kickstarter.com/projects/528872388/the-adventures-of-bodhi-and-chester?ref=category)
-[\"STALKER\" the MOVIE Suspense Crime Drama Feat Claudia Jordan](https://www.kickstarter.com/projects/305-filmmakerdas/stalker-the-movie-a-feature-film-starring-claudia?ref=category)
-[Sticky-Icky Gooey Lizzy!](https://www.kickstarter.com/projects/siglizzy/sticky-icky-gooey-lizzy?ref=category)
-[First Picture Book To Celebrate Being a Girl](https://www.kickstarter.com/projects/994912243/first-picture-book-to-celebrate-being-a-girl?ref=category)
-[Still, Now; Someday Back](https://www.kickstarter.com/projects/1777607183/still-now-someday-back?ref=category)
-[Metamorphosis Book - Self illustrated tattoo artists' photos](https://www.kickstarter.com/projects/1699893867/metamorphosis-book?ref=category)
-[Once Upon a Dream Book by Savannah Kate Photography](https://www.kickstarter.com/projects/1514567365/once-upon-a-dream-by-savannah-kate-photography?ref=category)
-[Niva's sophomore album Audiophile R&B Rock and Soul](https://www.kickstarter.com/projects/1538408614/nivas-sophomore-album-audiophile-randb-rock-and-so?ref=category)
-[Waking Dreams: vibraphonist Chris Dingman's debut album](https://www.kickstarter.com/projects/chrisdingman/waking-dreams-vibraphonist-chris-dingmans-debut-al?ref=category)
-[Terri Krul's New Jazz CD: \"In the Still of the Night\"](https://www.kickstarter.com/projects/377513244/terri-kruls-new-jazz-cd-in-the-still-of-the-night?ref=category)
-[GBS Detroit Presents Greater Alexander](https://www.kickstarter.com/projects/gbsdetroit/gbs-detroit-presents-greater-alexander?ref=category)
-[Long-awaited, much-debated Caroline Fourmy ALBUM!](https://www.kickstarter.com/projects/197189134/long-awaited-much-debated-caroline-fourmy-album?ref=category)
-[My Friends and I: Recording 2nd EP in the studio this summer](https://www.kickstarter.com/projects/332278540/my-friends-and-i-recording-2nd-ep-in-the-studio-th?ref=category)
-[Le Cerbère en Vidéoclip!](https://www.kickstarter.com/projects/1030624866/le-cerbere-en-videoclip?ref=category)
-[Rogue Force](https://www.kickstarter.com/projects/333509543/rogue-force?ref=category)
-[Dogs of War's First Self-Titled Album](https://www.kickstarter.com/projects/653939562/dogs-of-wars-first-self-titled-album?ref=category)
-[A Little Guitar](https://www.kickstarter.com/projects/610972639/a-little-guitar?ref=category)
-[In The Lowlands](https://www.kickstarter.com/projects/1377748817/in-the-lowlands?ref=category)
-[309C's Album \"Make It Big In A Small Town\" Release](https://www.kickstarter.com/projects/816639554/309cs-album-make-it-big-in-a-small-town-release?ref=category)
-[Moonshine Matinee - New Album!!! - \"Sweet Somewhere Gone\"](https://www.kickstarter.com/projects/1659444023/moonshine-matinee-new-album-sweet-somewhere-gone?ref=category)
-[China through the Eyes of an American Woman](https://www.kickstarter.com/projects/464890633/china-through-the-eyes-of-an-american-woman?ref=category)
-[Healthy Dog Network](https://www.kickstarter.com/projects/dogs/healthy-dog-network?ref=category)
-[Parallel Magazine](https://www.kickstarter.com/projects/sophieephotos/parallel-magazine?ref=category)
-[XOXO Droplets- GxB Comedy Dating Sim](https://www.kickstarter.com/projects/gbpatch/xoxo-droplets-gxb-comedy-dating-sim?ref=category)
-[Hailan Rising](https://www.kickstarter.com/projects/reloadedprod/hailan-rising?ref=category)
-[Widower's Wood: an Iron Kingdoms Adventure Board Game](https://www.kickstarter.com/projects/privateerpress/widowers-wood-an-iron-kingdoms-adventure-board-gam?ref=category)
-[Stay hungry: Donner Party by BTRC games](https://www.kickstarter.com/projects/334884471/stay-hungry-donner-party-by-btrc-games?ref=category)
-[WARFIGHTER - World War II](https://www.kickstarter.com/projects/11606594/warfighter-world-war-ii?ref=category)
-[Kaplooey!](https://www.kickstarter.com/projects/854828831/kaplooey?ref=category)
-[Riesenspiel Köln](https://www.kickstarter.com/projects/251376946/riesenspiel-koln?ref=category)
-[Detroit Stew](https://www.kickstarter.com/projects/1998671310/detroit-stew?ref=category)
-[Jackie Farmer - A decade in Cottiers (Suspended)](https://www.kickstarter.com/projects/907585646/jackie-farmer-a-decade-in-cottiers?ref=category)
-[Let Me Roast Coffee Beans For You](https://www.kickstarter.com/projects/2130842041/roasting-fresh-green-coffeelight-to-medium-roasts?ref=category)
-[Nectar - Food For Yogis and Dancers](https://www.kickstarter.com/projects/1415156373/nectar-food-for-yogis-and-dancers?ref=category)
-[A Community Garden to Benefit Inner City Kids & Families](https://www.kickstarter.com/projects/communitygardenaz/a-community-garden-to-benefit-city-kids-and-parent?ref=category)
-[Evil Emma](https://www.kickstarter.com/projects/1255812080/evil-emma?ref=category)
-[The Untold Story of Tatra: Prague to Pebble or Bust](https://www.kickstarter.com/projects/1462432953/the-untold-story-of-tatra-prague-to-pebble-or-bust?ref=category)
-[Perönliche & Individuell gestickte Geschenke](https://www.kickstarter.com/projects/1233688165/peronliche-and-individuell-gestickte-geschenke?ref=category)
-[ORGY OF THE VAMPIRES from Mike Wolfer Entertainment](https://www.kickstarter.com/projects/149983649/orgy-of-the-vampires-from-mike-wolfer-entertainmen?ref=category)
-[Tribal Force America's First All Native Super Hero Comic](https://www.kickstarter.com/projects/845684679/tribal-force-americas-first-all-native-super-hero?ref=category)
-[48 Hour Film Project - Team Drywater](https://www.kickstarter.com/projects/drywaterproductions/48-hour-film-project-team-drywater?ref=category)
-[Patient Zero](https://www.kickstarter.com/projects/robsholty/patient-zero-a-zombie-film?ref=category)
-[Keys of the Universe Montessori Elementary Videos](https://www.kickstarter.com/projects/884618471/keys-of-the-universe-montessori-elementary-videos?ref=category)
-[No More Tears](https://www.kickstarter.com/projects/1420607020/no-more-tears?ref=category)
-[THE ABANDONED PROJECT](https://www.kickstarter.com/projects/1486359095/the-abandoned-project?ref=category)
-[The Ghost Tracks (Texas Legend of Our Lost Children)](https://www.kickstarter.com/projects/413565069/the-ghost-tracks-texas-legend-of-our-lost-children?ref=category)
-[MELODY MEMORIES](https://www.kickstarter.com/projects/von-sydow/melody-memories?ref=category)
-[Charlie vs Goliath](https://www.kickstarter.com/projects/828549861/charlie-vs-goliath?ref=category)
-[The Bits of Yesterday- A Video Game Collecting Adventure](https://www.kickstarter.com/projects/2139058238/the-bits-of-yesterday-a-video-game-collecting-adve?ref=category)
-[Can Live: Cannes Live](https://www.kickstarter.com/projects/930003503/can-live-cannes-live?ref=category)
-[LUNCH LOVE COMMUNITY ](https://www.kickstarter.com/projects/718761139/lunch-love-community?ref=category)
-[Test Drive](https://www.kickstarter.com/projects/39083546/test-drive?ref=category)
-[Angry Clown Pays $325 \"Fix-It\" Headlight Ticket](https://www.kickstarter.com/projects/160637706/angry-clown-pays-325-fix-it-headlight-ticket?ref=category)
-[An Animated Anatomy - how the body works -eye, ear, heart](https://www.kickstarter.com/projects/2087704553/an-animated-anatomy-how-the-body-works-eye-ear-hea?ref=category)
-[The Rap Guide to Religion (Animated Rap Album)](https://www.kickstarter.com/projects/1764913427/the-rap-guide-to-religion-animated-rap-album?ref=category)
-[Red Letter Words [Animated Series]](https://www.kickstarter.com/projects/heartfeltanimation/animated-bible-series?ref=category)
-[3D Printed Artisan Urn Necklace - Pendant is Made in USA](https://www.kickstarter.com/projects/tomwilcoxdesign/3d-printed-artisan-urn-necklace-pendant-is-made-in?ref=category)
-[BEANIE BABY FUR COAT](https://www.kickstarter.com/projects/1995866193/beanie-baby-fur-coat?ref=category)
-[Martha Lace - handmade lingerie](https://www.kickstarter.com/projects/796732466/martha-lace-handmade-lingerie?ref=category)
-[Bedford Denim | The Jeans That Don't Rip. Guaranteed](https://www.kickstarter.com/projects/1805289423/bedford-denim-the-jeans-that-dont-rip?ref=category)
-[SUPPORT AVOSKA PROJECT AND SAFE OUR PLANET!](https://www.kickstarter.com/projects/1777054294/support-avoska-project-and-safe-our-planet?ref=category)
-[MIRABELLA  - Turn an ordinary look into extraordinary style©](https://www.kickstarter.com/projects/mirabellagirl/mirabella-turn-an-ordinary-look-into-extraordinary?ref=category)
-[Pock-it - Accessories for the modern gentleman](https://www.kickstarter.com/projects/1407119946/pock-it-accessories-for-the-modern-gentleman?ref=category)
-[Helios Touch Modular Lighting System](https://www.kickstarter.com/projects/1987956413/helios-touch-modular-lighting-system?ref=category)
-[Cubit: Perfect Cubes of Ultra-Dense Tungsten](https://www.kickstarter.com/projects/152108000/cubit-perfect-cubes-of-tungsten-titanium-and-more?ref=category)
-[The DPx HEST/F URBAN. The All American Hard Use Pocket Knife](https://www.kickstarter.com/projects/170295107/the-dpx-hest-f-urban-the-all-american-hard-use-poc?ref=category)
-[Broccoli Wallet](https://www.kickstarter.com/projects/thelinearcalendar/broccoli-wallet?ref=category)
-[The Mythical Alphabet and Cryptozoology Icon Posters](https://www.kickstarter.com/projects/markgonyea/the-mythical-alphabet-and-cryptozoology-icon-poste?ref=category)
-[Wireless Connection - A Contemporary Fusion Dance Show](https://www.kickstarter.com/projects/1174145310/wireless-connection-a-contemporary-fusion-dance-sh?ref=category)
-['Journeys to Somewhere Else' by John Avon](https://www.kickstarter.com/projects/johnavonart/journeys-to-somewhere-else-by-john-avon?ref=category)
-[Arizona Native Bird Painting Series](https://www.kickstarter.com/projects/1030315317/arizona-native-bird-painting-series?ref=category)
-[SERICO - Art and Design Studio](https://www.kickstarter.com/projects/1770709679/serico-art-and-design-studio?ref=category)
-[Airblown Airbrush](https://www.kickstarter.com/projects/206898161/airblown-airbrush?ref=category)
-[The Little Prinsinn at The Brooklyn Lyceum](https://www.kickstarter.com/projects/1012693075/the-little-prinsinn-at-the-brooklyn-lyceum?ref=category)
-[The Same Sky Project: We All Live Under The Same Sky](https://www.kickstarter.com/projects/1960383432/the-same-sky-project-we-all-live-under-the-same-sk?ref=category)
-[Hitch Hiker OM: Lightweight Balanced Tripod Head](https://www.kickstarter.com/projects/398172523/hitch-hiker-om-lightweight-balanced-tripod-head?ref=category)
-[The Ancient Egyptian Daybook](https://www.kickstarter.com/projects/tsiuda/the-ancient-egyptian-daybook?ref=category)
-[We Who Were There: A Collection of Macon County WWII Stories](https://www.kickstarter.com/projects/1232549664/we-who-were-there-a-collection-of-macon-county-wwi?ref=category)
-[The Second Renaissance](https://www.kickstarter.com/projects/2045434624/the-second-renaissance?ref=category)
-[Dissertation: Android Application Security](https://www.kickstarter.com/projects/1910422777/dissertation-android-application-security?ref=category)
-[ZOUII - the selfie collection](https://www.kickstarter.com/projects/563787333/zouii-the-selfie-collection?ref=category)
-[Independent Artist Festival 2012 Gaston NC](https://www.kickstarter.com/projects/920545640/independent-artist-festival-2012-gaston-nc?ref=category)
-[Pre-Purchase Documentary on Rap Artist GUCCI MANE - THE RAW REPORT](https://www.kickstarter.com/projects/571752573/pre-purchase-documentary-on-rap-artist-gucci-mane?ref=category)
-[Kyle Swartzwelder Makes a Record](https://www.kickstarter.com/projects/51641418/kyle-swartzwelder-makes-a-record?ref=category)
-[SENS: All-Natural Bars Packed With Cricket Protein](https://www.kickstarter.com/projects/sensfoods/sens-all-natural-bars-packed-with-cricket-protein?ref=category)
-[making egg salad](https://www.kickstarter.com/projects/337685837/making-egg-salad?ref=category)
-[The House On Forest Drive](https://www.kickstarter.com/projects/397619968/the-house-on-forest-drive?ref=category)
-[Minimalist Jewelry by Talk2theHand](https://www.kickstarter.com/projects/813976126/minimalist-jewelry-by-talk2thehand?ref=category)
-[Dionies Sports Apparel](https://www.kickstarter.com/projects/dionies/dionies-sports-apparel?ref=category)
-[\"Inherent Worth and Dignity\"...Living Portraits](https://www.kickstarter.com/projects/170808573/inherent-worth-and-dignityliving-portraits?ref=category)
-[Paddock School Theater Improvement](https://www.kickstarter.com/projects/68649865/paddock-school-theater-improvement?ref=category)
-[Women of the World: Songs Created and Sung By Women](https://www.kickstarter.com/projects/1310642090/women-of-the-world-songs-created-and-sung-by-women?ref=category)
-[cbp:LLC Presents: Carrie The Horror Musical](https://www.kickstarter.com/projects/cbpllc/cbp-llc-presents-carrie-the-horror-musical?ref=category)
-[CSS squeezer](https://www.kickstarter.com/projects/860131059/css-squeezer?ref=category)
-[TERRA. Share economy, share land cultivation, share beauty!](https://www.kickstarter.com/projects/606653493/terra-share-economy-share-land-cultivation-share-b?ref=category)
-[Manga Screen – Multi Touch 4.3\" LCD](https://www.kickstarter.com/projects/1924187374/manga-screen-multi-touch-43-lcd?ref=category)
-[Pi Pan: A Raspberry Pi Case with Options](https://www.kickstarter.com/projects/623569705/pi-pan-a-raspberry-pi-case-with-options?ref=category)
-[Pivot Ramp Patent Pending](https://www.kickstarter.com/projects/1784801597/pivot-ramp-patent-pending?ref=category)
-[If Potato Salad can raise $50,000, why can't I for music?](https://www.kickstarter.com/projects/184620533/if-potato-salad-can-raise-50000-why-cant-i-for-mus?ref=category)
-[The Simon Keith Story](https://www.kickstarter.com/projects/1693215901/the-simon-keith-story?ref=category)
-[The Mighty Knights](https://www.kickstarter.com/projects/bestchildrensbooks/the-mighty-knights?ref=category)
-[Digital Painting Techniques](https://www.kickstarter.com/projects/2020240030/digital-painting-techniques?ref=category)
-[Flagstaff Community Centre Archaeology Project](https://www.kickstarter.com/projects/flagstaff/flagstaff-community-centre-archaeology-project?ref=category)
-[Mega Mammoth-Building one of the world's largest cameras](https://www.kickstarter.com/projects/273224914/building-one-of-the-worlds-largest-glass-plate-cam?ref=category)
-[e-Learning musicAcademia: Piano Scores, Lessons & More](https://www.kickstarter.com/projects/1842398056/website-for-piano-scoresandlessons-subscription-ba?ref=category)
-[Society Kills' EP](https://www.kickstarter.com/projects/260175995/society-kills-ep?ref=category)
-[LA PILA PUNK desea celebrar 13º Aniversario publicando un CD](https://www.kickstarter.com/projects/1560941878/la-pila-punk-desea-celebrar-13o-aniversario-public?ref=category)
-[Dan Zdilla: Behold and Lo](https://www.kickstarter.com/projects/2126078992/dan-zdilla-behold-and-lo?ref=category)
-[HILL NATION! Let's make a record!!](https://www.kickstarter.com/projects/scarecrowhill/hill-nation-lets-make-a-record?ref=category)
-[Metaphysical Metal](https://www.kickstarter.com/projects/1084480988/metaphysical-metal?ref=category)
-[Grubstake my next recording \"Love's the Key\"](https://www.kickstarter.com/projects/allanharris2016/grubstake-my-next-recording-loves-the-key?ref=category)
-[Brittle Bones & Megaphones](https://www.kickstarter.com/projects/brittneywells/brittle-bones-and-megaphones?ref=category)
-[The Lighthouse and The Whaler Makes A New Record](https://www.kickstarter.com/projects/tlatw/the-lighthouse-and-the-whaler-makes-a-new-record?ref=category)
-[HeadFonez Hardcopies](https://www.kickstarter.com/projects/1446036973/headfonez-hardcopies?ref=category)
-[~RIOUX~ Electronic / Psychedelic / Soul Productions](https://www.kickstarter.com/projects/rioux/rioux-electronic-psychedelic-soul-productions?ref=category)
-[The Ariadne Project - Strauss @ 150](https://www.kickstarter.com/projects/787855509/the-ariadne-project-strauss-150?ref=category)
-[The Help Trump Voters Realize Their Mistake Foundation](https://www.kickstarter.com/projects/1793481042/the-help-trump-voters-realize-their-mistake-founda?ref=category)
-[Consuming Coral Reefs](https://www.kickstarter.com/projects/1315344273/consuming-coral-reefs?ref=category)
-[The Ultimate Virtual Reality Game Building Course.](https://www.kickstarter.com/projects/1555758454/the-ultimate-virtual-reality-game-building-course?ref=category)
-[Super Hammy - the iPhone game](https://www.kickstarter.com/projects/596041146/super-hammy-the-iphone-game?ref=category)
-[Rise Up: The Game of People and Power](https://www.kickstarter.com/projects/1713701812/rise-up-the-game-of-people-and-power?ref=category)
-[Stonehaven's Giants](https://www.kickstarter.com/projects/2087444096/stonehavens-giants?ref=category)
-[CHOPS - The Rock and Roll Board Game](https://www.kickstarter.com/projects/quirkyengine/chops-the-rock-and-roll-board-game?ref=category)
-[FOIL Luxury Playing Cards - Bicycle©'s MetalLuxe™ Technology](https://www.kickstarter.com/projects/blueprintplayingcard/foil-luxury-playing-cards-bicycles-metalluxetm-tec?ref=category)
-[Horror Memories](https://www.kickstarter.com/projects/1543049482/horror-memories?ref=category)
-[Juke: Rush Your Way To Victory! -Football Game Application](https://www.kickstarter.com/projects/447147529/juke-rush-your-way-to-victory-football-game-applic?ref=category)
-[Chic's Jerky - A Chef's Dream](https://www.kickstarter.com/projects/177605633/chics-jerky-a-chefs-dream?ref=category)
-[Izotop Nano-Brewery](https://www.kickstarter.com/projects/58722210/izotop-nano-brewery?ref=category)
-[CupShield. Spill proof your cup](https://www.kickstarter.com/projects/1189355682/cupshield-spill-proof-your-cup?ref=category)
-[\"Azhal\" (Tamil word which means \"Fire\")](https://www.kickstarter.com/projects/5123933/azhal-tamil-word-which-means-fire?ref=category)
-[\"Prinsesa\" - The Boy Who Dreamed of Being a Princess](https://www.kickstarter.com/projects/686639804/prinsesa-the-boy-who-dreamed-of-being-a-princess?ref=category)
-[Drain](https://www.kickstarter.com/projects/1902822145/drain?ref=category)
-[Looking for the Jackalope](https://www.kickstarter.com/projects/906819022/looking-for-the-jackalope-0?ref=category)
-[Help save historic cinema in Maryborough VIC Australia](https://www.kickstarter.com/projects/158223245/help-save-historic-cinema-in-maryborough-vic-austr?ref=category)
-[It's too late (independent film)](https://www.kickstarter.com/projects/1442684366/its-too-late-independent-film?ref=category)
-[THE ODYSSEY PROJECT: breaking free of the prison pipeline](https://www.kickstarter.com/projects/749206419/the-odyssey-project-a-documentary-outcry-meets-opp?ref=category)
-[What We Do In The Shadows: The American Release](https://www.kickstarter.com/projects/1423546688/what-we-do-in-the-shadows-the-american-release?ref=category)
-[King Crazy Jack! Your name/business can be in this Movie!!!](https://www.kickstarter.com/projects/868942652/king-crazy-jack-your-name-business-can-be-in-this?ref=category)
-[Grim Life: The Road To Tidewater Comic Con!](https://www.kickstarter.com/projects/2144006154/grim-life-the-road-to-tidewater-comic-con?ref=category)
-[VOLTARA: BATTLE FOR THE GALAXY](https://www.kickstarter.com/projects/2130065394/voltara-battle-for-the-galaxy-0?ref=category)
-[HAZEL LABEL: Ethical Fashion - Made in Australia](https://www.kickstarter.com/projects/1701759170/hazel-label-clothing-you-deserve-to-wear-made-in-a?ref=category)
-[Say no to \"conflict gemstones and blood diamonds\".](https://www.kickstarter.com/projects/1731438836/say-no-to-conflict-gemstones-and-blood-diamonds?ref=category)
-[Mint Money Bag Upcycle](https://www.kickstarter.com/projects/2028540125/mint-money-bag-upcycle?ref=category)
-[CLUG - the world's smallest bike rack](https://www.kickstarter.com/projects/834664305/clug-cycle-storage-thats-like-a-hug-for-your-bike?ref=category)
-[Aufbau LEGO© Webseite mit Shop Flix-Brix Automatisierung](https://www.kickstarter.com/projects/756792171/aufbau-lego-webseite-mit-shop-flix-brix-automatisi?ref=category)
-[Fúchila Fresheners. Que Fresh!](https://www.kickstarter.com/projects/1321523476/fuchila-fresheners-que-fresh?ref=category)
-[360 Virtual Reality Circus Experience by Hideaway Circus](https://www.kickstarter.com/projects/1336492606/hideaway-circus-a-new-virtual-reality-experience?ref=category)
-[Slither by Matthew J. Levin](https://www.kickstarter.com/projects/321236486/slither-by-matthew-j-levin?ref=category)
-[El bosque de azucar](https://www.kickstarter.com/projects/1102207551/el-bosque-de-azucar?ref=category)
-[Molten Metal Extravaganza!](https://www.kickstarter.com/projects/1461930831/molten-metal-extravaganza?ref=category)
-[\"ART and TIME\" Where works and words of ART meet to inspire!](https://www.kickstarter.com/projects/art4good/art-and-time-where-works-and-words-of-art-meet-to?ref=category)
-[Cabeza Debacle](https://www.kickstarter.com/projects/machineproject/cabeza-debacle?ref=category)
-[RECKLESS @ The Rose Playhouse](https://www.kickstarter.com/projects/1476721492/reckless-the-rose-playhouse?ref=category)
-[Grammy's Art Experiences; a little Van Gogh in all of us](https://www.kickstarter.com/projects/892514825/grammys-art-experiences-a-little-van-gough-in-all?ref=category)
-[TRANQUILITY](https://www.kickstarter.com/projects/436164860/tranquility?ref=category)
-[Stolen Child Tarot, COMPLETE the 78 CARD DECK!](https://www.kickstarter.com/projects/774786282/stolen-child-tarot-complete-the-78-card-deck?ref=category)
-[R-Theory](https://www.kickstarter.com/projects/1577003543/r-theory?ref=category)
-[MIDI Sprout - Biodata Sonification Device](https://www.kickstarter.com/projects/datagarden/midi-sprout-biodata-sonification-device?ref=category)
-[Dust Bunnies & the Carpet Rat publishing push](https://www.kickstarter.com/projects/762985600/dust-bunnies-and-the-carpet-rat-publishing-push?ref=category)
-[Old Trunk - Edinburgh 2014](https://www.kickstarter.com/projects/1492581606/old-trunk-edinburgh-2014?ref=category)
-[The PM-Now Network - Share the Knowledge](https://www.kickstarter.com/projects/mike-manley/the-pm-now-network-share-the-knowledge?ref=category)
-[Please contribute to BuckGet.com igg.me/at/buckget/x/4847599](https://www.kickstarter.com/projects/ericskaggs/help-people-earn-a-living-with-buckgetcom?ref=category)
-[MAYAK - A Star That Will Free the Earth from Space Debris](https://www.kickstarter.com/projects/1650918432/mayak-a-star-that-will-free-the-earth-from-space-d?ref=category)
-[U.S. Government Contracting Cloud Based SaaS 360 Platform](https://www.kickstarter.com/projects/361953386/us-government-contracting-cloud-based-saas-360-pla?ref=category)
-[Tennis Motion Desktop](https://www.kickstarter.com/projects/1872129499/tennis-motion-desktop?ref=category)
-[Capture IT!](https://www.kickstarter.com/projects/107027207/capture-it-0?ref=category)
-[Dickinson High School FIRST Robotics 2013 Lonestar Regional](https://www.kickstarter.com/projects/562283329/dickinson-high-school-first-robotics-2013-lonestar?ref=category)
-[CoBattery: Never plug in your iPhone again.](https://www.kickstarter.com/projects/cobattery/cobattery-never-plug-in-your-iphone-again?ref=category)
-[EnerQi Clips Needle-less Acupuncture Sustained Acupressure](https://www.kickstarter.com/projects/enerqi/enerqi-clips-needle-less-acupuncture-sustained-acu?ref=category)
-[V-DIAG - Connect and Save Solution](https://www.kickstarter.com/projects/1919866951/v-diag-connect-and-save-solution?ref=category)
-[Pocket Cloud 2](https://www.kickstarter.com/projects/1633313892/pocket-cloud-2?ref=category)
-[The Ultimate Unified Inbox - Beta](https://www.kickstarter.com/projects/1777615075/the-ultimate-unified-inbox-beta?ref=category)
-[Laurel & Hardy: The Magic Behind the Movies–Special Edition](https://www.kickstarter.com/projects/373772146/laurel-and-hardy-the-magic-behind-the-moviesspecia?ref=category)
-[Quantum Leap: Beyond the Mirror Image](https://www.kickstarter.com/projects/1160414727/quantum-leap-beyond-the-mirror-image?ref=category)
-[PhD: The Book!](https://www.kickstarter.com/projects/82642682/phd-the-book?ref=category)
-[Marketing \"The Ice Cream Theory\"](https://www.kickstarter.com/projects/steffdeschenes/marketing-the-ice-cream-theory?ref=category)
-[Another Super Day](https://www.kickstarter.com/projects/1952427214/another-super-day?ref=category)
-[Universal Guide to Crowd Fund Your Business](https://www.kickstarter.com/projects/2029920911/universal-guide-to-crowd-fund-your-business?ref=category)
-[Pantheon - a novel of the ancient Greek gods (webisodes)](https://www.kickstarter.com/projects/gdevore/pantheon-a-novel-of-the-ancient-greek-gods-webisod?ref=category)
-[A-Z Wildlife 5 Hardcover Book Series - Canadian Animals](https://www.kickstarter.com/projects/1585178772/a-z-wildlife-5-book-series-8x5-hardcover-printed-i?ref=category)
-[Adventure of Joy](https://www.kickstarter.com/projects/1197154220/adventure-of-joy?ref=category)
-[Bwata Books: Windy Animals](https://www.kickstarter.com/projects/521777384/bwata-books-windy-animals?ref=category)
-[Dream kingdom Cosplay Photography](https://www.kickstarter.com/projects/1407005409/dream-kingdom-cosplay-photography?ref=category)
-[Send Anaria to Dragon Con!](https://www.kickstarter.com/projects/1444456753/send-anaria-to-dragon-con?ref=category)
-[Draft Week - \"Close to the Wind\" EP Kickstarter](https://www.kickstarter.com/projects/262526284/draft-week-close-to-the-wind-ep-kickstarter?ref=category)
-[New music from Mark Pierce - Catapult](https://www.kickstarter.com/projects/971959243/new-music-from-mark-pierce-catapult?ref=category)
-[We don't want to miss the opportunity of a lifetime!](https://www.kickstarter.com/projects/timhartyband/join-us-and-be-a-big-part-of-thetimhartybands-debu?ref=category)
-[Zorki: Me & My Guitar & TV](https://www.kickstarter.com/projects/602559008/zorki-me-and-my-guitar-and-tv?ref=category)
-[Young Hunting - The West by Northwest Coast Tour](https://www.kickstarter.com/projects/younghunting/young-hunting-the-west-by-northwest-coast-tour?ref=category)
-[Panic Years Do America!](https://www.kickstarter.com/projects/1407807659/panic-years-do-america?ref=category)
-[SO MUCH YES presents \"This Round's On Us\" ~ FREE ALBUM ! !](https://www.kickstarter.com/projects/695791390/so-much-yes-presents-this-rounds-on-us-free-album?ref=category)
-[Piyasiri's new Electro House album \"A New Beginning\" on CD](https://www.kickstarter.com/projects/piyasirimusic/piyasiris-new-electro-house-album-a-new-beginning?ref=category)
-[Project In Pursuit](https://www.kickstarter.com/projects/1360257005/project-in-pursuit?ref=category)
-[Holland Marie's Debut album \"Southern Drawl\"](https://www.kickstarter.com/projects/1806838766/holland-maries-debut-album-southern-drawl?ref=category)
-[Kevin J. Cope - Debut Guitar/Composition CD](https://www.kickstarter.com/projects/1426694530/kevin-j-cope-debut-guitar-composition-cd?ref=category)
-[Never Be Forgotten With A Forever Obituary](https://www.kickstarter.com/projects/1485774802/never-be-forgotten?ref=category)
-[Independent Student Newspaper - Durham University](https://www.kickstarter.com/projects/50509631/independent-student-newspaper-durham-university?ref=category)
-[Cancer at 25](https://www.kickstarter.com/projects/400838566/cancer-at-25?ref=category)
-[Summit Press - Alterantive Journalism](https://www.kickstarter.com/projects/1316862391/summit-press-alterantive-journalism?ref=category)
-[Digital Radio Network](https://www.kickstarter.com/projects/859464097/digital-radio-network?ref=category)
-[Spectre: Virtual Reality Horror](https://www.kickstarter.com/projects/1260566890/spectre-virtual-reality-horror?ref=category)
-[Valgoria Classic 16-Bit Action Adventure](https://www.kickstarter.com/projects/1246609657/valgoria-classic-16-bit-action-adventure?ref=category)
-[Seize the Day - A Modern FMV Game](https://www.kickstarter.com/projects/fumovi/seize-the-day-a-modern-fmv-game?ref=category)
-[Kingdoms of a New World Playing Cards](https://www.kickstarter.com/projects/1657065264/kingdoms-of-a-new-world-playing-cards?ref=category)
-[THE RIGHT- ANGLE HELMET, THE HELMET OF SALVATION](https://www.kickstarter.com/projects/2078174650/the-right-angle-helmet-the-helmet-of-salvation?ref=category)
-[UNDERSCARES - The Diaper from the Creators of Outlast 2](https://www.kickstarter.com/projects/1149400304/underscares-the-diaper-from-the-creators-of-outlas?ref=category)
-[Oliver & Serrano - Premium Extra Virgin Olive Oil from Spain](https://www.kickstarter.com/projects/1079655165/oliver-and-serrano-premium-extra-virgin-olive-oil?ref=category)
-[Kismet Coffee Company, a cafe that gives back to charities!](https://www.kickstarter.com/projects/1687849424/kismet-coffee-company?ref=category)
-[Guys With Girl Problems Webseries](https://www.kickstarter.com/projects/scottlentz/guys-with-girl-problems-webseries?ref=category)
-[Drift: The Web Series](https://www.kickstarter.com/projects/868613057/drift-the-web-series?ref=category)
-[Support indie! Help us bring the world to Granny's House!](https://www.kickstarter.com/projects/115031434/help-us-bring-the-world-to-grannys-house?ref=category)
-[Turning my novel \"Pegasus War\" into a TV Series](https://www.kickstarter.com/projects/811298503/turning-my-novel-pegasus-war-into-a-tv-series?ref=category)
-[Your Love: A Short Film](https://www.kickstarter.com/projects/120903330/your-love-a-short-film?ref=category)
-[Bring MELVIN to the big (and small) screen!](https://www.kickstarter.com/projects/chrisohlson/bring-melvin-to-the-big-and-small-screen?ref=category)
-[Don't Watch Me Dancing Film](https://www.kickstarter.com/projects/799190769/dont-watch-me-dancing-film?ref=category)
-[SUBJECT X - The experiment is all around you](https://www.kickstarter.com/projects/1430941351/subject-x-the-experiment-is-all-around-you?ref=category)
-[Set Me Free - Second Kickstarter Campaign](https://www.kickstarter.com/projects/2119464523/set-me-free-second-kickstarter-campaign?ref=category)
-[Nashville or Bust](https://www.kickstarter.com/projects/2138981537/nashville-or-bust?ref=category)
-[\"NEED\"](https://www.kickstarter.com/projects/34230549/need?ref=category)
-[Fight For Space - Space Program & NASA Documentary](https://www.kickstarter.com/projects/420606009/fight-for-space-space-program-and-nasa-documentary?ref=category)
-[A Convenient Truth Movie - Theatrical Run](https://www.kickstarter.com/projects/265792882/a-convenient-truth-movie-theatrical-run?ref=category)
-[Franksgiving: A short film](https://www.kickstarter.com/projects/stknezovich/franksgiving-a-short-film?ref=category)
-[DEFEETED](https://www.kickstarter.com/projects/1687560567/defeeted?ref=category)
-[Couture collection shown in SAN FRANCISCO gallery](https://www.kickstarter.com/projects/1813042776/couture-collection-shown-in-san-francisco-gallery?ref=category)
-[Focus Bands](https://www.kickstarter.com/projects/1833639178/focus-bands?ref=category)
-[Luxury Pop-Up Shop and Fashion Show](https://www.kickstarter.com/projects/goldzapparel/luxury-pop-up-shop-and-fashion-show?ref=category)
-[Create The Best You #BeFit - Swole co.](https://www.kickstarter.com/projects/329842809/inspiring-you-to-be-fit-today-swole-co?ref=category)
-[Got Smiles? | Life's better when you smile! :)](https://www.kickstarter.com/projects/706866434/got-smiles-lifes-better-when-you-smile?ref=category)
-[Just a Small Town Girl Chasing The American Dream](https://www.kickstarter.com/projects/246733467/just-a-small-town-girl-chasing-the-american-dream?ref=category)
-[Creative Beauty reusing what others don't](https://www.kickstarter.com/projects/1530836095/creative-beauty-reusing-what-others-dont?ref=category)
-[Wanting to see my bows every were](https://www.kickstarter.com/projects/242654466/wanting-to-see-my-bows-every-were?ref=category)
-[Our Cats Are More Famous Than Us: A Johnny Wander Omnibus](https://www.kickstarter.com/projects/746734715/our-cats-are-more-famous-than-us-a-johnny-wander-o?ref=category)
-[LeyLines in Print! Volume 3](https://www.kickstarter.com/projects/2088273372/leylines-in-print-volume-3?ref=category)
-[The Fireblood Chronicles](https://www.kickstarter.com/projects/1397765509/the-fireblood-chronicles?ref=category)
-[Of Fleas and Fleadom: A Tale of Two Vermin](https://www.kickstarter.com/projects/1466173605/of-fleas-and-fleadom-a-tale-of-two-vermin?ref=category)
-[My Sweet Lady Comic Series](https://www.kickstarter.com/projects/1144515954/my-sweet-lady-comic-series?ref=category)
-[#PhillyTheBern Bernie Sanders Mural by Old Broads and Disto](https://www.kickstarter.com/projects/1424440417/phillythebern-bernie-sanders-mural-by-old-broads-a?ref=category)
-[Shoreditch Spring Festival](https://www.kickstarter.com/projects/597924783/shoreditch-spring-festival?ref=category)
-[Dirty Sexy Monster ( Live Denim Art )](https://www.kickstarter.com/projects/1393047923/dirty-sexy-monster-live-denim-art?ref=category)
-[Jasmine & Jafar Sugar Skull Stickers](https://www.kickstarter.com/projects/myantz/jasmine-and-jafar-sugar-skull-stickers-0?ref=category)
-[The Great Escape: A Coloring Book](https://www.kickstarter.com/projects/252667977/the-great-escape-a-coloring-book?ref=category)
-[Discover NYC – Book of Drawings](https://www.kickstarter.com/projects/1971586084/discover-nyc-book-of-drawings?ref=category)
-[Gibberish: The Activity Book](https://www.kickstarter.com/projects/1110136186/gibberish-the-activity-book?ref=category)
+
+[Space Shooter Continuum (Free Mobile Phone Game)](https://www.kickstarter.com/projects/509472528/space-shooter-continuum-free-mobile-phone-game?ref=category_newest)
+
+[Graphic Auto Design](https://www.kickstarter.com/projects/5928624/graphic-auto-design?ref=category_newest)
+
+[The Adventure of Paul the Pencil, \"The Encourager\"](https://www.kickstarter.com/projects/mwhite35/the-adventure-of-paul-the-pencil-the-encourager?ref=category_newest)
+
+[Avias Radiation-shielded Leather Cell Phone Wallet Case](https://www.kickstarter.com/projects/1304599699/avias-radiation-shielded-leather-cell-phone-wallet?ref=category_newest)
+
+[FIND V2.0 - Never lose anything! Share or track via App](https://www.kickstarter.com/projects/sensegiz/find-v20-never-lose-anything-share-or-track-via-ap?ref=category_newest)
+
+[My first album on the nature!](https://www.kickstarter.com/projects/robbydarkness/my-first-album-on-the-nature?ref=category_newest)
+
+[No Dar Papaya:  Photographs from Colombia 2003-2013](https://www.kickstarter.com/projects/nodarpapaya/no-dar-papaya-photographs-from-colombia-2003-2013?ref=category_newest)
+
+[Crypta: Logins Revolutionized](https://www.kickstarter.com/projects/crypta/crypta-logins-revolutionized?ref=category_newest)
+
+[Nature Remo: Make Any Room Air Conditioner Smart](https://www.kickstarter.com/projects/926103613/nature-remo-make-any-room-air-conditioner-smart?ref=category_newest)
+
+[Ping Wallet - The world's thinnest, smartest wallet.](https://www.kickstarter.com/projects/28038983/ping-wallet-the-worlds-thinnest-smartest-wallet?ref=category_newest)
+
+[ShowMyGlasses.com](https://www.kickstarter.com/projects/1816896794/showmyglassescom?ref=category_newest)
+
+[Swipe at the San Diego International Fringe Festival](https://www.kickstarter.com/projects/120948223/swipe-at-the-san-diego-international-fringe-festiv?ref=category_newest)
+
+[Angular 4 Mastery - Build 9 Apps](https://www.kickstarter.com/projects/shockwavelabs/angular-4-mastery-build-9-apps?ref=category_newest)
+
+[Station House Recording Studio](https://www.kickstarter.com/projects/674722423/station-house-recording-studio?ref=category_newest)
+
+[Motion Mouse: Input Device for the Physically Impaired](https://www.kickstarter.com/projects/isaiahcroatt/motion-mouse-input-device-for-the-physically-impai?ref=category_newest)
+
+[ORION4Sight: Sunglasses On Steroids](https://www.kickstarter.com/projects/johngalley/orion4sight-sunglasses-on-steroids?ref=category_newest)
+
+[TUBULAR...A Musical in One Act](https://www.kickstarter.com/projects/1368479989/tubulara-musical-in-one-act?ref=category_newest)
+
+[Thunder One-One](https://www.kickstarter.com/projects/527097232/thunder-one-one?ref=category_newest)
+
+[7 Moves](https://www.kickstarter.com/projects/1029079181/7-moves?ref=category_newest)
+
+[Be Normal: A humorous guide to accepted and expected norms](https://www.kickstarter.com/projects/cmicahtaylor/be-normal-a-humorous-guide-to-accepted-and-expecte?ref=category)
+
+[Working for $1](https://www.kickstarter.com/projects/malaikathorne/working-for-1-how-the-1-perpetuate-poverty-world-w?ref=category)
+
+[QuikFlash - A Better Safety Light](https://www.kickstarter.com/projects/1798141982/quikflash-a-better-safety-light?ref=category)
+
+[Telescope Senior Project - Elkins High School - 2015](https://www.kickstarter.com/projects/533569161/telescope-senior-project-elkins-high-school-2015?ref=category)
+
+[CVTM Robotics FTC Team Expansion](https://www.kickstarter.com/projects/1898313918/cvtm-robotics-ftc-team-expansion?ref=category)
+
+[The MegaCube](https://www.kickstarter.com/projects/1553148706/the-megacube?ref=category)
+
+[Lovepoppet](https://www.kickstarter.com/projects/334151103/lovepoppet?ref=category)
+
+[A Bluetooth Arduino for the mobile age: LightBlue Bean+](https://www.kickstarter.com/projects/1966384672/a-bluetooth-arduino-for-the-mobile-age-lightblue-b?ref=category)
+
+[Steadicam Volt Smartphone Stabilizer | Shake-Free Videos](https://www.kickstarter.com/projects/tiffencompany/steadicam-volt-smartphone-stabilizer-shake-free-vi?ref=category)
+
+[Life Prorated.    Life after Death App](https://www.kickstarter.com/projects/62432772/life-prorated-life-after-death-app?ref=category)
+
+[\"What Size When\" iOS App Development](https://www.kickstarter.com/projects/edelweissbaby/what-size-when-ios-app-development?ref=category)
+
+[SYLVAN Magazine: Stories of Women](https://www.kickstarter.com/projects/leahgraystelt/sylvan-magazine-stories-of-women?ref=category)
+
+[Two Bit Poems - A Poem a Day for 25 Cents](https://www.kickstarter.com/projects/1868564898/two-bit-poems-a-poem-a-day-for-25-cents?ref=category)
+
+[Citizenship in the World merit badge - Secret Agent Edition](https://www.kickstarter.com/projects/scoutrevolution/citizenship-in-the-world-merit-badge-secret-agent?ref=category)
+
+[The Coach's Wife - Stories from the Bleachers](https://www.kickstarter.com/projects/385532945/the-coachs-wife-stories-from-the-bleachers?ref=category)
+
+[The R Word (take 2)](https://www.kickstarter.com/projects/2085413760/the-r-word-take-2?ref=category)
+
+[Creating The Next Wave of Species #BlueKDynasty:an Epic Saga](https://www.kickstarter.com/projects/442122166/creating-the-next-wave-of-species-bluekdynasty-an?ref=category)
+
+[State Themed Flash Cards: A New Way To Souvenir!](https://www.kickstarter.com/projects/brighteyedbaby/state-themed-flash-cards-a-new-way-to-souvenir?ref=category)
+
+[The Art of Will Davies](https://www.kickstarter.com/projects/1502319432/the-art-of-will-davies?ref=category)
+
+[A Comparative Dictionary of the Modern Germanic Languages](https://www.kickstarter.com/projects/2259871/a-comparative-dictionary-of-the-modern-germanic-la?ref=category)
+
+[We Break Strings, the Alternative Classical Scene in London](https://www.kickstarter.com/projects/909891721/we-break-strings-the-alternative-classical-scene-i?ref=category)
+
+[Gailfean - Won't you come out tonight](https://www.kickstarter.com/projects/354355610/gailfean-wont-you-come-out-tonight?ref=category)
+
+[Kind Hearts and Cornettos](https://www.kickstarter.com/projects/1660953466/kind-hearts-and-cornettos?ref=category)
+
+[Keep The Hooten Hallers on tour in 2013!](https://www.kickstarter.com/projects/244345672/keep-the-hooten-hallers-on-tour-in-2013?ref=category)
+
+[*CHUCKS APARTMENT](https://www.kickstarter.com/projects/145726119/chucks-apartment-3?ref=category)
+
+[Jazz Stew Filling The Jazz Void Project](https://www.kickstarter.com/projects/877668575/jazz-stew-filling-the-jazz-void-project?ref=category)
+
+[Night Sea debut EP](https://www.kickstarter.com/projects/nightsea/night-sea-debut-ep?ref=category)
+
+[GBS Detroit Presents Brother Apollo](https://www.kickstarter.com/projects/gbsdetroit/gbs-detroit-presents-brother-apollo?ref=category)
+
+[New indie hip-hop music with exclusive merchandise.](https://www.kickstarter.com/projects/1749918705/new-indie-hip-hop-music-with-exclusive-merchandise?ref=category)
+
+[RULER Tour 2017](https://www.kickstarter.com/projects/1389342004/ruler-tour-2017?ref=category)
+
+[Lynk.](https://www.kickstarter.com/projects/408625167/lynk?ref=category)
+
+[We'll play for Jelly beans](https://www.kickstarter.com/projects/1964134955/well-play-for-jelly-beans?ref=category)
+
+[Leo Ornstein's Piano Concerto](https://www.kickstarter.com/projects/imslp/leo-ornsteins-piano-concerto?ref=category)
+
+[Experience the cultures of the world in homes near you](https://www.kickstarter.com/projects/1981010057/immigrant-host-families-to-create-living-museums-n?ref=category)
+
+[New NES & SNES Game: Sydney Hunter and the Caverns of Death](https://www.kickstarter.com/projects/439982171/new-snes-game-sydney-hunter-and-the-caverns-of-dea?ref=category)
+
+[Runes & Bones Edition Zero](https://www.kickstarter.com/projects/1284196867/runes-and-bones-edition-zero?ref=category)
+
+[SOCCER CITY, the strategy board game for football lovers](https://www.kickstarter.com/projects/soccercity/soccer-city-the-strategy-board-game-for-football-l?ref=category)
+
+[Starving Artists - Award-Winning, Paint-by-Cube Game](https://www.kickstarter.com/projects/fairway3games/starving-artists-award-winning-paint-by-cube-game?ref=category)
+
+[SCOURGE: A Game of War](https://www.kickstarter.com/projects/ultra-evil-studios/scourge-a-game-of-war?ref=category)
+
+[Constellation Dice - Voyager Edition - Papercraft](https://www.kickstarter.com/projects/giolasar/constellation-dice-voyager-edition-papercraft?ref=category)
+
+[Tivoli Handmade Chocolates](https://www.kickstarter.com/projects/327181186/tivoli-handmade-chocolates?ref=category)
+
+[The Rebel Espress](https://www.kickstarter.com/projects/656933331/the-rebel-espress?ref=category)
+
+[Help Create Vintner's Circle Urban Winery in Tannersville PA](https://www.kickstarter.com/projects/1558802476/help-create-vintners-circle-urban-winery-in-tanner?ref=category)
+
+[Choose This Day: No Other Gods](https://www.kickstarter.com/projects/1147509667/choose-this-day-no-other-gods?ref=category)
+
+[passion](https://www.kickstarter.com/projects/638706869/passion-0?ref=category)
+
+[\"SUPER DYSLALIA\" United, we can break the cruelty!](https://www.kickstarter.com/projects/superdyslalia/super-dyslalia-united-we-can-break-the-cruelty?ref=category)
+
+[La crème de la crème](https://www.kickstarter.com/projects/364118767/la-creme-de-la-creme?ref=category)
+
+[MyPhoneHenge](https://www.kickstarter.com/projects/belveal/myphonehenge?ref=category)
+
+[London's First (music based) Edible-Art Exhibition](https://www.kickstarter.com/projects/963612534/londons-first-music-based-edible-art-exhibition?ref=category)
+
+[Santa Rosa's Zombie Apocalypse: The Best Haunted House Ever!](https://www.kickstarter.com/projects/76624016/santa-rosas-zombie-apocalypse-the-best-haunted-hou?ref=category)
+
+[Trip Out with the Cast & Crew of the Short Film, Trip](https://www.kickstarter.com/projects/electricmarshmallow/get-trippy-with-the-cast-and-crew-of-trip?ref=category)
+
+[ParaNova (a neo-noir film)](https://www.kickstarter.com/projects/1302258510/paranova-a-neo-noir-film?ref=category)
+
+[The Above Ground Project](https://www.kickstarter.com/projects/1545799530/the-above-ground-project?ref=category)
+
+[Storming Sedalia](https://www.kickstarter.com/projects/bobwagner13/storming-sedalia?ref=category)
+
+[Shakespeare Link goes to Latvia](https://www.kickstarter.com/projects/53893871/shakespeare-link-goes-to-latvia?ref=category)
+
+[RAUNCH AND ROLL.  A film adaptation of the hit 2012 play.](https://www.kickstarter.com/projects/2048726054/raunch-and-roll-a-film-adaptation-of-the-hit-2012?ref=category)
+
+[\"Long They Stood\" Short Film](https://www.kickstarter.com/projects/1945053607/long-they-stood-short-film?ref=category)
+
+[Dying Wish - Short Film](https://www.kickstarter.com/projects/305006860/dying-wish?ref=category)
+
+[Rocket Stove Instructional DVD](https://www.kickstarter.com/projects/villagevideo/rocket-stove-instructional-dvd?ref=category)
+
+[Why Is No One Listening: A Documentary Film](https://www.kickstarter.com/projects/rabjab/why-is-no-one-listening-a-documentary-film?ref=category)
+
+[Lobster Girl Horror Comic former Sony/BMG project](https://www.kickstarter.com/projects/1350384011/lobster-girl-horror-comic-book-3d-animation?ref=category)
+
+[Dew of Senira - 3D animation](https://www.kickstarter.com/projects/75345350/dew-of-senira-3d-animation?ref=category)
+
+[The $20 Campaign](https://www.kickstarter.com/projects/1032597866/the-20-campaign?ref=category)
+
+[THE BBS CAMPAIGN](https://www.kickstarter.com/projects/2016798701/the-bbs-campaign?ref=category)
+
+[TIMEDOCK Charging Dock for Pebble Time & Steel Smartwatch](https://www.kickstarter.com/projects/microfacturing/timedock-charging-dock-for-pebble-time-and-steel-s?ref=category)
+
+[Hodges Square Park](https://www.kickstarter.com/projects/1672315828/hodges-square-park?ref=category)
+
+[Wasteland](https://www.kickstarter.com/projects/wastelandexhibition/wasteland-3?ref=category)
+
+[The Golden Moth Illumination Deck](https://www.kickstarter.com/projects/51647073/the-golden-moth-illumination-deck?ref=category)
+
+[Street Artist to open Studio :: Spray Paint Art](https://www.kickstarter.com/projects/497057119/spray-paint-artist-on-state-street?ref=category)
+
+[Disappearing American Landscapes](https://www.kickstarter.com/projects/2012807328/disappearing-american-landscapes?ref=category)
+
+[Working toward my first art show](https://www.kickstarter.com/projects/1175204716/working-toward-my-first-art-show?ref=category)
+
+[The IT Community Project - An Online IT Knowledge Base](https://www.kickstarter.com/projects/1260560974/the-it-community-project-an-online-it-knowledge-ba?ref=category)
+
+[Quebee: Your Own Personal Cameraman](https://www.kickstarter.com/projects/quebee/quebee-your-own-personal-cameraman?ref=category)
+
+[LOVE TUNNEL](https://www.kickstarter.com/projects/1697919325/love-tunnel?ref=category)
+
+[Haus of Soup](https://www.kickstarter.com/projects/kidsncrowns/haus-of-soup?ref=category)
+
+[BOOK-CELL-SIGHT/Melee Over Moscow](https://www.kickstarter.com/projects/1703823723/book-cell-sight-melee-over-moscow?ref=category)
+
+[Will Woodson and Eric McDonald: The Sunny Hills](https://www.kickstarter.com/projects/671115452/will-woodson-and-eric-mcdonald-the-sunny-hills?ref=category)
+
+[Building Recording Studio & Lesson Rooms in Bluemont, VA](https://www.kickstarter.com/projects/petedurand/building-recording-studio-and-lesson-rooms-in-blue?ref=category)
+
+[Buried Beds \"Tremble\" Vinyl and Video by Juliet Wayne!!](https://www.kickstarter.com/projects/567488124/tremble-the-sails-vinyl-and-video-by-juliet-wayne?ref=category)
+
+[Onami - A Card Game Of Strategic Manuevers](https://www.kickstarter.com/projects/wyvrengaming/onami-a-card-game-of-strategic-manuevers?ref=category)
+
+[Celtic Knot: Playing Cards Ceilteach revised](https://www.kickstarter.com/projects/820320834/celtic-knot-ceilteach-revised?ref=category)
+
+[Genegrafter](https://www.kickstarter.com/projects/1460165270/genegrafter?ref=category)
+
+[Entry Level 28mm & 15mm Terrain System](https://www.kickstarter.com/projects/1141913215/entry-level-28mm-and-15mm-terrain-system?ref=category)
+
+[A HUNGRY MODEL: in 2 short films](https://www.kickstarter.com/projects/janewoodproductions/a-hungry-model-in-2-short-films?ref=category)
+
+[A Mother's Love](https://www.kickstarter.com/projects/272168230/a-mothers-love-1?ref=category)
+
+[Multiplayer](https://www.kickstarter.com/projects/189212724/multiplayer?ref=category)
+
+[FOOTBALL'S 7th WHISTLE](https://www.kickstarter.com/projects/1349975113/footballs-7th-whistle?ref=category)
+
+[Mall-World Animated Series - Comedy](https://www.kickstarter.com/projects/1854740699/mall-world-animated-series-comedy?ref=category)
+
+[\"Finding True Love\" Post-Production](https://www.kickstarter.com/projects/360573866/find-true-love-post-production?ref=category)
+
+[Let a Rock Doc Rock! Help launch Echotone!](https://www.kickstarter.com/projects/thedarkagency/let-a-rock-doc-rock-help-launch-echotone?ref=category)
+
+[Syrena - It's About Our Customers](https://www.kickstarter.com/projects/1109300928/syrena-its-about-our-customers?ref=category)
+
+[Hats for Happiness](https://www.kickstarter.com/projects/1945912378/hats-for-happiness?ref=category)
+
+[Fine Art of DPR Korea](https://www.kickstarter.com/projects/2020988593/fine-art-of-dpr-korea?ref=category)
+
+[Great Lakes Bay Women 2013. Book to accompany the exhibition](https://www.kickstarter.com/projects/289417899/great-lakes-bay-women-2013-book-to-accompany-the-e?ref=category)
+
+[I Love Koh Phangan Travel Website](https://www.kickstarter.com/projects/71511639/i-love-koh-phangan-travel-website?ref=category)
+
+[Caelum - Photos from stratosphere](https://www.kickstarter.com/projects/gordonkoehn/caelum-photos-from-stratosphere?ref=category)
+
+[Raspberry Pi Micro-USB On / Off Power Switch Circuit](https://www.kickstarter.com/projects/1312527055/micro-usb-on-off-power-switch-for-raspberry-pi?ref=category)
+
+[PCBGRIP: Probe Clamp For Your Electronics Projects](https://www.kickstarter.com/projects/2065435222/pcbgrip-probe-clamp-for-your-electronics-projects?ref=category)
+
+[Zansker: Stories from anywhere, Inspiring people everywhere](https://www.kickstarter.com/projects/silvermoonphoto/zansker-stories-from-anywhere-inspiring-people-eve?ref=category)
+
+[Core Helper App, K-8 get the education you need.](https://www.kickstarter.com/projects/788563188/core-helper-app-k-8-get-the-education-you-need?ref=category)
+
+[RoboGuts™](https://www.kickstarter.com/projects/2015129836/robogutstm?ref=category)
+
+[The Gypsy Moon Green Almanac](https://www.kickstarter.com/projects/588301761/the-gypsy-moon-green-almanac?ref=category)
+
+[UFO NOW: Full UFO Disclosure - The Entire Series for $10](https://www.kickstarter.com/projects/1224252498/ufo-now-full-ufo-disclosure-the-entire-series-for?ref=category)
+
+[American Sulla - What happens next?](https://www.kickstarter.com/projects/174570341/american-sulla-what-happens-next?ref=category)
+
+[The Age of Elements Trilogy](https://www.kickstarter.com/projects/125431595/the-age-of-elements-trilogy?ref=category)
+
+[TOGETHER No Child Feels Left Out!](https://www.kickstarter.com/projects/storytime/together-no-child-feels-left-out?ref=category)
+
+[Lost](https://www.kickstarter.com/projects/591596862/lost-0?ref=category)
+
+[Best Magical Photography of My Life: 1987- 2015](https://www.kickstarter.com/projects/1281645308/best-magical-photography-of-my-life-1987-2015?ref=category)
+
+[Locust Street Taxi's Final Album - BBF](https://www.kickstarter.com/projects/37087176/locust-street-taxis-final-album-bbf?ref=category)
+
+[Taylor Maxwell's New Record \"Good Grief\"](https://www.kickstarter.com/projects/dtaylormaxwell/taylor-maxwells-new-record-good-grief?ref=category)
+
+[UltraFaux's Original Gypsy Jazz Recording Session](https://www.kickstarter.com/projects/ultrafaux/ultrafauxs-original-gypsy-jazz-recording-session-a?ref=category)
+
+[Amable \"Now This\" 4 song 7\" record on transparent blue vinyl](https://www.kickstarter.com/projects/1273193264/amable-now-this-4-song-7-record-on-transparent-blu?ref=category)
+
+[Last Hours Album Project](https://www.kickstarter.com/projects/239452087/last-hours-album-project?ref=category)
+
+[K.I.D Ransom - Head In a Cloud](https://www.kickstarter.com/projects/369002458/kid-ransom-head-in-a-cloud?ref=category)
+
+[New album -- Soul in Paraphrase](https://www.kickstarter.com/projects/jenniferhildebrand/new-album-soul-in-paraphrase?ref=category)
+
+[Georgia Grace's debut EP](https://www.kickstarter.com/projects/georgia-grace/georgia-graces-debut-ep?ref=category)
+
+[Cantabile 10th Anniversary Concert](https://www.kickstarter.com/projects/1248636548/cantabile-10th-anniversary-concert?ref=category)
+
+[Mark of the Old Ones - a Metroidvanian adventure](https://www.kickstarter.com/projects/1168767162/mark-of-the-old-ones-a-metroidvanian-adventure?ref=category)
+
+[Robots Love Ice Cream game for the iPad](https://www.kickstarter.com/projects/addogames/robots-love-ice-cream-game-for-the-ipad?ref=category)
+
+[MODUS](https://www.kickstarter.com/projects/18126491/modus?ref=category)
+
+[Ciné Défi : Plus qu'un quiz !](https://www.kickstarter.com/projects/343793919/cine-defi-plus-quun-quiz?ref=category)
+
+[*** T H U N D E R  - T R A C K *** Relaunch from Turbo Rally](https://www.kickstarter.com/projects/166525302/t-h-u-n-d-e-r-t-r-a-c-k-relaunch-from-turbo-rally?ref=category)
+
+[Golden Age Horror Comic Book Cover Playing Cards](https://www.kickstarter.com/projects/1468389582/golden-age-horror-comic-book-cover-playing-cards?ref=category)
+
+[Cursed Cards - Playing Cards](https://www.kickstarter.com/projects/mannmadeillustration/cursed-cards-playing-cards?ref=category)
+
+[eSport World Finals Gaming Championship e-Gamers Rule!](https://www.kickstarter.com/projects/1127814884/esport-world-finals-gaming-championship-e-gamers-r?ref=category)
+
+[Princess RomComm (Suspended)](https://www.kickstarter.com/projects/597418641/princess-romcomm?ref=category)
+
+[Aprovecho Community Commercial Kitchen](https://www.kickstarter.com/projects/aprovecho/aprovecho-community-commercial-kitchen?ref=category)
+
+[Vegetable Farmer upcycles & transforms a Tyson chicken farm!](https://www.kickstarter.com/projects/paul-meyer/small-organic-farmer-gives-new-life-to-old-chicken?ref=category)
+
+[Chocolate - The Exhibition - Gulf Coast Exploreum Museum](https://www.kickstarter.com/projects/1487879863/chocolate-the-exhibition-gulf-coast-exploreum-muse?ref=category)
+
+[Sword and Laser Video Season 2](https://www.kickstarter.com/projects/1353208899/sword-and-laser-video-season-2?ref=category)
+
+[A Mile in my Boots](https://www.kickstarter.com/projects/843254902/a-mile-in-my-boots?ref=category)
+
+[RAY & LIZ](https://www.kickstarter.com/projects/68852125/ray-and-liz?ref=category)
+
+[MAN FROM RENO](https://www.kickstarter.com/projects/daveboyle/man-from-reno?ref=category)
+
+[Making my own music video](https://www.kickstarter.com/projects/ginaofficiell/music-video-8?ref=category)
+
+[RUINED](https://www.kickstarter.com/projects/115765815/ruined?ref=category)
+
+[Dancing with NED -- A Cancer Rock Documentary ](https://www.kickstarter.com/projects/1484785737/dancing-with-ned-a-cancer-rock-documentary?ref=category)
+
+[The S Word - a film that changes how we talk about suicide](https://www.kickstarter.com/projects/560038684/the-s-word-a-feature-length-documentary-film?ref=category)
+
+[TonyLovesGina](https://www.kickstarter.com/projects/1677834510/tonylovesgina?ref=category)
+
+[PRIIT PÄRN & THE NEW PÄRNOGRAPHERS - EXHIBITION CATALOG](https://www.kickstarter.com/projects/1650849662/priit-parn-and-the-new-parnographers-exhibition-ca?ref=category)
+
+[JARGON Animated Series](https://www.kickstarter.com/projects/jargonstudios/jargon-animated-series?ref=category)
+
+[Stick Megaman Unleashed](https://www.kickstarter.com/projects/1629624149/stick-megaman-unleashed?ref=category)
+
+[Ambushed](https://www.kickstarter.com/projects/1508969236/ambushed-0?ref=category)
+
+[Little Lady Boutique](https://www.kickstarter.com/projects/1677390491/little-lady-boutique?ref=category)
+
+[Valentines Day Fashion Show and Ball, Burlington NC](https://www.kickstarter.com/projects/michelleteaguesmith/valentines-day-fashion-show-and-ball-burlington-nc?ref=category)
+
+[Mile200 - A Shirt That Breaks Boundaries](https://www.kickstarter.com/projects/2118720885/mile200-a-shirt-that-breaks-boundaries?ref=category)
+
+[Pole & Me : The most comfortable active wear in the world!](https://www.kickstarter.com/projects/poleandme/pole-and-me-the-most-comfortable-pole-wear-in-the?ref=category)
+
+[Lets Survive in Style.](https://www.kickstarter.com/projects/50587309/lets-survive-in-style?ref=category)
+
+[Foglia ts](https://www.kickstarter.com/projects/81380072/foglia-ts?ref=category)
+
+[InkOverz - Phase I - Workplace Visible Tattoo Solution](https://www.kickstarter.com/projects/anncline/inkoverz-phase-i-flexible-fit-workplace-tattoo-sle?ref=category)
+
+[Send Citizen Mahadevan to ZBT Formal (Suspended)](https://www.kickstarter.com/projects/1794792848/send-citizen-mahadevan-to-zbt-formal?ref=category)
+
+[jaeblaze Short Project](https://www.kickstarter.com/projects/1732370881/jaeblaze-short-project?ref=category)
+
+[Stick-On Frame DIY](https://www.kickstarter.com/projects/1600245918/stick-on-frame-diy?ref=category)
+
+[Wishing Tree for the 99%](https://www.kickstarter.com/projects/1453069199/wishing-tree-for-the-99?ref=category)
+
+[From the Land of Flowing Waters, \"On Hallowed Ground\" Mural](https://www.kickstarter.com/projects/1271046122/from-the-land-of-flowing-waters-on-hallowed-ground?ref=category)
+
+[The Hopster, Mascot, Fun, festivals, music, breweries](https://www.kickstarter.com/projects/467047777/the-hopster-mascot-fun-festivals-music-breweries?ref=category)
+
+[Freak Show Skateboards Reborn](https://www.kickstarter.com/projects/freakshowskateboards/freak-show-skateboards-reborn?ref=category)
+
+[Little Harley Quinn & Joker Vinyl Stickers](https://www.kickstarter.com/projects/936022058/little-harley-quinn-and-joker-vinyl-stickers?ref=category)
+
+[My Visionarium. Beautifully illustrated cards for children.](https://www.kickstarter.com/projects/1572557082/my-visionarium-beautifully-illustrated-cards-for-c?ref=category)
+
+[Mjölby Porslinsrävsmuseum pin](https://www.kickstarter.com/projects/2052913346/mjolby-porslinsravsmuseum-pin?ref=category)
+
+[The Rules: Sex, Lies & Serial Killers](https://www.kickstarter.com/projects/the-rules-play/the-rules-sex-lies-and-serial-killers?ref=category)
+
+[Once On This Island](https://www.kickstarter.com/projects/1518310013/once-on-this-island?ref=category)
+
+[Inland Seas Steel Clipper Owners Association website](https://www.kickstarter.com/projects/1083588503/inland-seas-steel-clipper-owners-association-websi?ref=category)
+
+[Free IT Tutorial Video Library in 4 languages-Future of Tech](https://www.kickstarter.com/projects/erudeversity/free-it-tutorial-video-library-in-4-languages-futu?ref=category)
+
+[OMNI-QC - Netduino-powered quadcopter](https://www.kickstarter.com/projects/394278275/omni-qc-netduino-powered-quadcopter?ref=category)
+
+[HOLOS  DYMO FLEX, FITNESS, EXERCISE & TRAINING DEVICE](https://www.kickstarter.com/projects/holosdymoflex/holos-dymo-flex-fitness-exercise-and-training-devi?ref=category)
+
+[Voccell DLS - Complete Laser Cutter & Engraver System](https://www.kickstarter.com/projects/722439927/voccell-dls-complete-laser-cutter-and-engraver-sys?ref=category)
+
+[Adjacent Parking - Park Cheap, Park Quick, Park ADJACENT](https://www.kickstarter.com/projects/374612479/adjacent-parking?ref=category)
+
+[Poems in Conversation: Molly Peacock & Amy M. Clark](https://www.kickstarter.com/projects/shpconversation3/poems-in-conversation-molly-peacock-and-amy-m-clar?ref=category)
+
+[Haiku: The Selfie](https://www.kickstarter.com/projects/1646584164/haiku-the-selfie?ref=category)
+
+[MC1R The magazine for redheads X MC1R Issue #5](https://www.kickstarter.com/projects/353077968/mc1r-the-magazine-for-redheads?ref=category)
+
+[RENDER: Feminist Food & Culture Quarterly](https://www.kickstarter.com/projects/453730909/render-feminist-food-and-culture-quarterly?ref=category)
+
+[Journey to Bhutan](https://www.kickstarter.com/projects/1025669129/journey-to-bhutan?ref=category)
+
+[The Baller Boyz presents: Game Face](https://www.kickstarter.com/projects/175967331/the-baller-boyz-presents-game-face?ref=category)
+
+[Help a Young Star Wars Fan with Special Needs tell his Story](https://www.kickstarter.com/projects/dondarkside/help-a-young-star-wars-fan-with-special-needs-tell?ref=category)
+
+[A spunky little quilter blossoms in Kristy's Quilt](https://www.kickstarter.com/projects/1295648186/a-spunky-little-quilter-blossoms-in-kristys-quilt?ref=category)
+
+[In the Abandoned Barn](https://www.kickstarter.com/projects/595487975/in-the-abandoned-barn?ref=category)
+
+[Grey Clouds Over Pine Valley](https://www.kickstarter.com/projects/gcopv1/grey-clouds-over-pine-valley?ref=category)
+
+['Our Teacher is a Creature!'](https://www.kickstarter.com/projects/toonutsproductions/our-teacher-is-a-creature?ref=category)
+
+[\"Collected Works\" by Eli Helman](https://www.kickstarter.com/projects/713907250/collected-works-by-eli-helman?ref=category)
+
+[Healdsburg's Immigrants](https://www.kickstarter.com/projects/1665633501/healdsburgs-immigrants?ref=category)
+
+[Philectric Arts Photo Studio](https://www.kickstarter.com/projects/1125412284/philectric-arts-photo-studio?ref=category)
+
+[Boente + 1](https://www.kickstarter.com/projects/538443297/boente-1?ref=category)
+
+[The Blondies Are Making A Record!](https://www.kickstarter.com/projects/440280170/the-blondies-are-making-a-record?ref=category)
+
+[Support Jesse Barrera's NEW EP \"You'll Feel Alive\"!](https://www.kickstarter.com/projects/jessebarrera/support-jesse-barreras-new-ep-youll-feel-alive?ref=category)
+
+[Hope Brings Peace World Tour New York](https://www.kickstarter.com/projects/1409141194/hope-brings-peace-world-tour-new-york?ref=category)
+
+[EDM + Beethoven's Symphony #5 Hybrid](https://www.kickstarter.com/projects/877412137/edm-beethovens-symphony-5-hybrid?ref=category)
+
+[New Classical Guitar Arrangements on DVD and Blu-ray Disc](https://www.kickstarter.com/projects/2086418517/classical-guitar-dvd-with-never-recorded-sibelius?ref=category)
+
+[\"Dreaming of...\" EP/CD Release](https://www.kickstarter.com/projects/1987542748/dreaming-of-ep-cd-release?ref=category)
+
+[SW:KotOR Bruderschaft des Schattens (Deutsche Übersetzung)](https://www.kickstarter.com/projects/641259554/sw-kotor-bruderschaft-des-schattens-deutsche-ubers?ref=category)
+
+[Discarded Angel: JRPG Visual Novel (18+)](https://www.kickstarter.com/projects/2016954345/discarded-angel?ref=category)
+
+[Faceted Flight](https://www.kickstarter.com/projects/dosillystuff/faceted-flight?ref=category)
+
+[Nuclear Eclipse Online | N.E.O -- FPS](https://www.kickstarter.com/projects/264425913/nuclear-eclipse-online-neo-fps?ref=category)
+
+[The Pointless Game by thepointless.com](https://www.kickstarter.com/projects/jonwire/the-pointless-game-by-thepointlesscom?ref=category)
+
+[Tenra Bansho Zero - An Art and Culture-Rich RPG from Japan](https://www.kickstarter.com/projects/diamondsutra/tenra-bansho-zero-an-art-and-culture-rich-rpg-from?ref=category)
+
+[Psychiatrist - The Ultimate Party Game](https://www.kickstarter.com/projects/psychiatristthegame/psychiatrist-the-ultimate-party-game?ref=category)
+
+[Drink n' Delegate](https://www.kickstarter.com/projects/2147071609/drink-or-delegate?ref=category)
+
+[NOOCH | Vegan Market: From Table Top to Store Front.](https://www.kickstarter.com/projects/noochveganmarket/nooch-vegan-market-from-table-top-to-store-front?ref=category)
+
+[Chocolate Chip Cookies](https://www.kickstarter.com/projects/nzevallos79/chocolate-chip-cookies-3?ref=category)
+
+[Just Jellin' : Cinnamon Whiskey](https://www.kickstarter.com/projects/1460051048/just-jellin-cinnamon-whiskey?ref=category)
+
+[Help Sherwood Point Grill, in Sturgeon Bay, Wisconsin](https://www.kickstarter.com/projects/1527831356/help-sherwood-point-grill-in-sturgeon-bay-wisconsi?ref=category)
+
+[Southeast Country House](https://www.kickstarter.com/projects/384275424/southeast-country-house?ref=category)
+
+[Help Pacific Freedom Farm GROW!](https://www.kickstarter.com/projects/811120105/help-pacific-freedom-farm-grow?ref=category)
+
+[Twenty-Nine BrewPub and Wood Fired Pizza](https://www.kickstarter.com/projects/2088665630/twenty-nine-brewpub-and-wood-fired-pizza?ref=category)
+
+['The Studio' TV Comedy Series Pilot](https://www.kickstarter.com/projects/172268900/the-studio-tv-comedy-series-pilot?ref=category)
+
+[\"Code Blue\"   A film by Susan Dynner and Jack Grisham](https://www.kickstarter.com/projects/codebluethemovie/code-blue-a-film-by-susan-dynner-and-jack-grisham?ref=category)
+
+[ARBITER](https://www.kickstarter.com/projects/1441161881/arbiter?ref=category)
+
+[Philadelphia, Ti Amo : A Story about Love in Philadelphia](https://www.kickstarter.com/projects/jeffayars/philadelphia-ti-amo-a-story-about-love-in-philadel?ref=category)
+
+[The Last Man On Earth](https://www.kickstarter.com/projects/440671591/the-last-man-on-earth?ref=category)
+
+[CYCLE: THE MOVIE - starring NICHOLAS HAMMOND & LINDA PURL](https://www.kickstarter.com/projects/411325574/cycle-the-movie-starring-nicholas-hammond-and-lind?ref=category)
+
+[Ali Kapadia's Peace Film](https://www.kickstarter.com/projects/alikapadia/ali-kapadias-peace-film?ref=category)
+
+[A Place For Everything | Short Film](https://www.kickstarter.com/projects/999641455/a-place-for-everything-short-film?ref=category)
+
+[What to do and not do when camping with kids](https://www.kickstarter.com/projects/redheadedgal/what-to-do-and-not-do-when-camping-with-kids?ref=category)
+
+[ROSIE'S PLACE SHOW](https://www.kickstarter.com/projects/799512812/rosies-place-show?ref=category)
+
+[30 Seconds Away: Breaking the Cycle](https://www.kickstarter.com/projects/farrelljessica/30-seconds-away-breaking-the-cycle?ref=category)
+
+[Sitcom Pilot: THE ALLEY](https://www.kickstarter.com/projects/1619300543/sitcom-pilot-the-alley?ref=category)
+
+[Jonbenét: A Fictional Recount of the Jonbenét Ramsey Story](https://www.kickstarter.com/projects/jonbenetramsey/jonbenet-a-fictional-recount-of-the-jonbenet-ramse?ref=category)
+
+[TX3 Texas Titan Tour](https://www.kickstarter.com/projects/2126702984/tx3-texas-titan-tour?ref=category)
+
+[NOLA Timeless Cool Biker Jackets](https://www.kickstarter.com/projects/409259367/nola-timeless-cool-biker-jackets?ref=category)
+
+[Core Denim Co.](https://www.kickstarter.com/projects/briannabening/core-denim-co?ref=category)
+
+[tshirt printing for everyone and affordable](https://www.kickstarter.com/projects/2125672222/tshirt-printing-for-everyone-and-affordable?ref=category)
+
+[AMPM Tanks & Limited Edition Leggings by GymRa](https://www.kickstarter.com/projects/79336429/ampm-tanks-and-limited-edition-leggings-by-gymra?ref=category)
+
+[Humbold Inc. Clothing Brand. Be Humble, Be Bold !](https://www.kickstarter.com/projects/848372438/humbold-inc-clothing-brand-be-humble-be-bold?ref=category)
+
+[\"Nice Turn Signal, A**hole\"](https://www.kickstarter.com/projects/1933553450/nice-turn-signal-a-hole?ref=category)
+
+[DirtySixer, The Only Big Bike For Tall People: 36\" Wheels!](https://www.kickstarter.com/projects/1743061580/dirtysixer-the-only-big-bike-for-tall-people-36-wh?ref=category)
+
+[Legend of Pizza Enamel Pins and Silver Plated Cartridge](https://www.kickstarter.com/projects/calebpaullus/legend-of-pizza-enamel-pins-and-silver-plated-cart?ref=category)
+
+[Willow Grove Pirates Guild: 2014 Pirate Festival](https://www.kickstarter.com/projects/willowgrovepirates/willow-grove-pirates-guild-2014-pirate-festival?ref=category)
+
+[GRCD DAAPworks 2013](https://www.kickstarter.com/projects/1722922088/grcd-daapworks-2013?ref=category)
+
+[The Complete OUR VALUED CUSTOMERS](https://www.kickstarter.com/projects/173804573/the-complete-our-valued-customers?ref=category)
+
+[Star Power and the Mystery of the Zel Gux Dynasty](https://www.kickstarter.com/projects/496629008/star-power-and-the-mystery-of-the-zel-gux-dynasty?ref=category)
+
+[The Shadow Appear's : The Righteous League's 1st comic!](https://www.kickstarter.com/projects/rcomics/the-shadow-appears-the-righteous-leagues-1st-comic?ref=category)
+
+[The 1 oz Silver Awaken Coin-Medallion](https://www.kickstarter.com/projects/lotusluminous/the-1-oz-silver-awaken-commemorative-coin-medallio?ref=category)
+
+[sitespecific Kingston](https://www.kickstarter.com/projects/1552730607/sitespecific-kingston?ref=category)
+
+[Emerald Art Center Signs](https://www.kickstarter.com/projects/617330182/emerald-art-center-signs?ref=category)
+
+[Dos'ink boutique de tatouage](https://www.kickstarter.com/projects/977106856/dosink-boutique-de-tatouage?ref=category)
+
+[Pilgrimage](https://www.kickstarter.com/projects/2120609737/pilgrimage-0?ref=category)
+
+[The Privilege Series - Video](https://www.kickstarter.com/projects/dortchdesigns/the-privilege-series-video-and-graphic-novel?ref=category)
+
+[Artbook BAREFACED by Dominic Beyeler](https://www.kickstarter.com/projects/dominicbeyeler/artbook-barefaced-by-dominic-beyeler?ref=category)
+
+[Lil Cute Slap Stickers!](https://www.kickstarter.com/projects/908782403/lil-cute-slap-stickers?ref=category)
+
+[Inky Treasures: your true coloring indulgence](https://www.kickstarter.com/projects/mashadesigner/inky-treasures-your-true-coloring-indulgence?ref=category)
+
+[Encore: Art Exhibition](https://www.kickstarter.com/projects/1906333785/encore-art-exhibition?ref=category)
+
+[Coloring the Past - Things were not always black and white](https://www.kickstarter.com/projects/1744591588/coloring-the-past-things-were-not-always-black-and?ref=category)
+
+[Old Boys Out West: Artists Jack and Knut Explore California](https://www.kickstarter.com/projects/1876896360/old-boys-out-west-artists-jack-and-knut-explore-ca?ref=category)
+
